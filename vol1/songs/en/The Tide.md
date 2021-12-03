@@ -16,4 +16,7 @@ Of losing all that you held dear\
 The cost seems reasonably unfair\
 You're almost crazy just to dare\
 But yet you swallow back your pride\
-And fix your boat up for the tide\
+And fix your boat up for the tide
+
+---
+- https://drorkessler.bandcamp.com/track/the-tide

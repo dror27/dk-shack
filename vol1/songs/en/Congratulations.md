@@ -29,3 +29,5 @@ Congratulations, it's getting near the end
 - https://youtu.be/s8o-3Sn6Juk
 - https://youtu.be/kzD4QQDu5Ik
 - https://youtu.be/PtGnEd_3JdU
+- https://drorkessler.bandcamp.com/track/congratulations-2
+- https://drorkessler.bandcamp.com/track/congratulations

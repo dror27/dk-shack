@@ -23,4 +23,7 @@ And every knife you break will be a pen someday\
 Every song you play will touch someone today\
 Every child you miss will come around today\
 Every thought you think will come alive today\
-‘Cause every word you say will change the world today\
+‘Cause every word you say will change the world today
+
+---
+- https://drorkessler.bandcamp.com/track/every-word

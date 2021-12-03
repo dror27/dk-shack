@@ -38,4 +38,7 @@ Should he stay and learn to prance\
 Well, I did what I did, you’ll have to figure it out\
 I’m not telling you a thing\
 I’m coming out of the shadows, into the light\
-Down again, your way\
+Down again, your way
+
+---
+- https://drorkessler.bandcamp.com/track/out-of-the-shadows

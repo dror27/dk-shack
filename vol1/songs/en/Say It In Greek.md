@@ -30,3 +30,5 @@ Anyway I’ll stay
 ---
 - https://youtu.be/jKtkRva5Gzk?t=2
 - https://youtu.be/usMcAvu-ENU
+- https://drorkessler.bandcamp.com/track/say-it-in-greek-marie-paurin
+- https://drorkessler.bandcamp.com/track/say-it-in-greek

@@ -42,3 +42,5 @@ From their own misery
 ---
 - https://youtu.be/feaF0Gw27Kg?t=1059
 - https://youtu.be/gmkYf5sgQ8I?t=1164
+- https://drorkessler.bandcamp.com/track/being-happy-free
+- https://drorkessler.bandcamp.com/track/being-happy-and-free

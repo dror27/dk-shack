@@ -57,3 +57,5 @@ And cheap supply of human will
 
 ---
 - https://youtu.be/uK7fIV8hbWI
+- https://drorkessler.bandcamp.com/track/artisan-cobalt-dream
+- https://drorkessler.bandcamp.com/track/artisan-cobalt-dream-mod

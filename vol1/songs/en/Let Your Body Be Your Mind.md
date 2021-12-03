@@ -34,3 +34,6 @@ Just let your body be your mind
 - https://youtu.be/feaF0Gw27Kg?t=440
 - https://youtu.be/UQYPGVlN9cw
 - https://youtu.be/rLfTbt8jooY
+- https://drorkessler.bandcamp.com/track/let-your-body-be-your-mind-machine-reading
+- https://drorkessler.bandcamp.com/track/let-your-body-be-your-mind-2
+- https://drorkessler.bandcamp.com/track/let-your-body-be-your-mind

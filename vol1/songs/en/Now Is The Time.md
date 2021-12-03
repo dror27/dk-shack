@@ -29,4 +29,8 @@ Your tweets pathetic if nothing gets sold\
 \
 So now is the time, to step out of line\
 Spend your last dime, commit minor crimes\
-Now is the time, let go of mankind, the world is fine\
+Now is the time, let go of mankind, the world is fine
+
+---
+- https://drorkessler.bandcamp.com/track/now-is-the-time
+- https://drorkessler.bandcamp.com/track/now-is-the-time-mod

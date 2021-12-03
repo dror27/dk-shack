@@ -26,4 +26,7 @@ Your voice I hear, your lips they move\
 For me it’s all the same\
 \
 All that time, I’ve been playing along\
-All that time, I’ve been writing this song\
+All that time, I’ve been writing this song
+
+---
+- https://drorkessler.bandcamp.com/track/all-that-time

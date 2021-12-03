@@ -64,3 +64,7 @@ I won't pretend
 - https://youtu.be/VgGX1zwnZXw?t=1425
 - https://youtu.be/i1OXFOHpVxI?t=495
 - https://youtu.be/ZpMqZSAVTUQ
+- https://drorkessler.bandcamp.com/track/pretend-3
+- https://drorkessler.bandcamp.com/track/pretend-2
+- https://drorkessler.bandcamp.com/track/pretend-2014
+- https://drorkessler.bandcamp.com/track/pretend

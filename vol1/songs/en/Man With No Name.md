@@ -40,3 +40,5 @@ Of the future, with a madly streak
 - https://youtu.be/i1OXFOHpVxI?t=2741
 - https://youtu.be/3IyZxoRxOtY?t=0
 - https://youtu.be/iRJsk2MoRik
+- https://drorkessler.bandcamp.com/track/man-with-no-name-ron-middleton
+- https://drorkessler.bandcamp.com/track/man-with-no-name-2

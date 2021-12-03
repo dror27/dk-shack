@@ -44,4 +44,7 @@ The teenaged son I so adore\
 The perfect weather, oh, what a bore\
 The babydoll you never wore\
 The ball and chains made out of gold\
-I guess you couldn’t fake it\
+I guess you couldn’t fake it
+
+---
+- https://drorkessler.bandcamp.com/track/can-you-fake-it

@@ -56,3 +56,6 @@ And you will feel young and whole, for simply Being yourself
 - https://youtu.be/baNRW4JCEzQ
 - https://youtu.be/0Vw-Nv7IpYs
 - https://youtu.be/F_pempzQKFk
+- https://drorkessler.bandcamp.com/track/being-yourself-rebecca-shmuel
+- https://drorkessler.bandcamp.com/track/being-yourself
+- https://drorkessler.bandcamp.com/track/being-yourself-bonus

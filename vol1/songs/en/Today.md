@@ -25,4 +25,7 @@ Today, the feeling's gone away\
 When you say:\
 "Everything is going to be OK"\
 When you say ... everything's away\
-Today, the feeling's gone away\
+Today, the feeling's gone away
+
+---
+- https://drorkessler.bandcamp.com/track/today-1998

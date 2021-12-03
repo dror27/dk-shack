@@ -40,4 +40,7 @@ But when out on the road, he’s the king of a stall\
 At a rest stop in Texas, he’s running it all\
 \
 Oh ... if something is wrong, fix it up in a song\
-Oh ... if something ain’t right, well, come see me tonight\
+Oh ... if something ain’t right, well, come see me tonight
+
+---
+- https://drorkessler.bandcamp.com/track/king-georgie-rebecca-shmuel
