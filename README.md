@@ -1,6 +1,7 @@
 # dk-shack
 
-A repository for the creative output of Dror Kessler. This mainly contains textual works, such as songs, stories and such.
+A repository for the creative output of Dror Kessler. This mainly contains textual works, such as songs, 
+[stories](vol1/stories/he) and such.
 
 Songs are currenly divided into [Volume 1](vol1) and [Volume 2](vol2). 
 Volume 1 corrosponds to the contents of the [Intifada Solitaire](vol1/other/en/Intifada%20Solitaire%20-%20Definition.md) book 
