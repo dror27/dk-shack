@@ -1,0 +1,29 @@
+# She’s So Keen
+
+She's got serpents running down her thigh\
+For you to chase like a beast\
+On your knees you will drop as you cry\
+While she continues to feast\
+\
+On your emotions she will dance as you choke\
+You're a sight to be seen\
+The world is watching as she rocks on the boat\
+With her favorite sin\
+\
+She's so keen, like a mean machine\
+And she'll never stop, or let the ball get dropped\
+Until she wins\
+\
+One of these days she's gonna light up a fire\
+Burn your clothes to the ground\
+From the ashes she will spell out D-E-S-I-R-E\
+Drag you all over town\
+\
+Your throbbing lust in the streets she will ride\
+Like in a July parade\
+Until you reach for her heart in a fight\
+Against your moral decay\
+\
+She's so keen, like a mean machine
+And she'll never stop, or let the ball get dropped\
+Until she wins\

@@ -1,0 +1,25 @@
+# Congratulations
+
+I’m sleeping outside\
+I’ve got nowhere else to go\
+I’m cutting out the ties\
+Burning bridges, slamming doors\
+The future looks certain\
+Yes, I’m headed for the fall\
+\
+Situations, they’re driving me again\
+Hesitation, no longer you’re my friend\
+Complications, waiting around the bend\
+Congratulations, it's getting near the end\
+\
+There used to be a time\
+When all joy has turned to fault\
+When cheering up a friend\
+Turned into a game with danger fraught\
+When fixing it up\
+Meant plunging deep into sloth\
+\
+Now I’m in situations, they’re driving me again\
+Hesitation, no longer you’re my friend\
+Complications, waiting around the bend\
+Congratulations, it's getting near the end\

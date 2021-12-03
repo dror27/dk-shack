@@ -1,0 +1,31 @@
+# Let Your Body Be Your Mind
+
+You've been away, you took your time\
+You lost your mind, now you are mine\
+Locked in a basement of a house you never been to\
+I'll be kind\
+\
+I'll spare you all the courtesy\
+The higher praise, the sublime\
+And when your scream your anger out\
+I'll tell you: "you'll be fine"\
+\
+I'm leaving you for a while\
+When you'll wake up you'll be fine\
+Some things are better left behind\
+Just let your body be your mind\
+\
+It’s becoming dark and cold\
+Your feet are numb, your shoulder cry\
+The chains cut through your flesh\
+You barely move, but yet you smile\
+\
+As silhouettes appear before your eyes\
+You wave them off until they die\
+Then morning creeps in through the shades\
+Some cars are passing by\
+\
+I'm leaving you for a while\
+When you'll wake up you'll be fine\
+Some things are better left behind\
+Just let your body be your mind\
