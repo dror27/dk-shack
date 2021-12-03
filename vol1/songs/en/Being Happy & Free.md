@@ -37,4 +37,8 @@ With falling in love, with being free\
 With running back into the sea\
 With falling in love that can not be\
 With trying hard to get free\
-From their own misery\
+From their own misery
+
+---
+- https://youtu.be/feaF0Gw27Kg?t=1059
+- https://youtu.be/gmkYf5sgQ8I?t=1164

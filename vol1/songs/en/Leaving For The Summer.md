@@ -41,4 +41,9 @@ Here’s to friendship, love love me do\
 We’ve got a lifetime before we’re through\
 \
 So I’ll go out walking for a while\
-And I’ll try to work it off somehow\
+And I’ll try to work it off somehow
+
+---
+- https://youtu.be/b4r8jDDNBO8
+- https://youtu.be/JmzzkiPGGlE
+- https://youtu.be/iKy0zLU7Fe8

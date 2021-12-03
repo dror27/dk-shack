@@ -42,4 +42,8 @@ Better equipped, as some people say\
 I’m learning the signs\
 Leading back to your heart\
 Staying inside\
-Without being tied\
+Without being tied
+
+---
+- https://youtu.be/i1OXFOHpVxI?t=291
+- https://youtu.be/HSFaW-g9zgA

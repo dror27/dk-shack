@@ -44,4 +44,7 @@ When I question your advice\
 You look away and roll the dice\
 \
 Did I miss your face again today, my friend?\
-Can you tell your life has changed, now that you're dead?\
+Can you tell your life has changed, now that you're dead?
+
+---
+- https://youtu.be/XGX4Omu9upY

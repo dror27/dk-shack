@@ -22,4 +22,20 @@ Her body is a palace I serve\
 Her gate is where I lie\
 And when we're all alone, at night\
 She's walking on a wire\
-As she's tumbling down the stairways of her mind\
+As she's tumbling down the stairways of her mind
+
+---
+- https://youtu.be/GargD_Dl0tQ?t=479
+- https://youtu.be/nAF3eRWg_o4?t=5
+- https://youtu.be/ycSQ_UxWyc4
+- https://youtu.be/feaF0Gw27Kg?t=1653
+- https://youtu.be/STfbAiXjPSk?t=316
+- https://youtu.be/VgGX1zwnZXw?t=1801
+- https://youtu.be/8KkCwUbprm8
+- https://youtu.be/9szCi-B3oRE
+- https://youtu.be/i1OXFOHpVxI?t=2362
+- https://youtu.be/6jlaG20puGA
+- https://youtu.be/W3SlitsaXpI
+- https://youtu.be/UxSQH37Qzb4
+- https://youtu.be/KOR5bnRVkN4
+- https://youtu.be/XZ_tdnyd81c

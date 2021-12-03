@@ -48,4 +48,8 @@ When she longed for her soul, he said come on dear\
 ‘Cause that’s just the way things here get done\
 By running around, by selling your crown\
 You think that you’re riding on top, but you are\
-Just chasing a dream, breathless and scarred\
+Just chasing a dream, breathless and scarred
+
+---
+- https://youtu.be/zqJH6xn1zdI
+- https://youtu.be/EXxixVSjhxM

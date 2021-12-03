@@ -22,4 +22,10 @@ Meant plunging deep into sloth\
 Now I’m in situations, they’re driving me again\
 Hesitation, no longer you’re my friend\
 Complications, waiting around the bend\
-Congratulations, it's getting near the end\
+Congratulations, it's getting near the end
+
+---
+- https://youtu.be/feaF0Gw27Kg?t=0
+- https://youtu.be/s8o-3Sn6Juk
+- https://youtu.be/kzD4QQDu5Ik
+- https://youtu.be/PtGnEd_3JdU

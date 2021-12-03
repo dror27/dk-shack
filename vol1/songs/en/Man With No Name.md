@@ -33,4 +33,10 @@ To commence his death, to even up the score\
 Still, amid all known beauty and shame\
 Lies a man who says he bears no name\
 Surrounded by voices he speaks\
-Of the future, with a madly streak\
+Of the future, with a madly streak
+
+---
+- https://youtu.be/JioqRm62RSI
+- https://youtu.be/i1OXFOHpVxI?t=2741
+- https://youtu.be/3IyZxoRxOtY?t=0
+- https://youtu.be/iRJsk2MoRik

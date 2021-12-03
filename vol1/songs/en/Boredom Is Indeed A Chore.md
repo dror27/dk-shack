@@ -38,4 +38,8 @@ Once you turn on the light\
 ‘Cause, boredom is indeed a chore\
 Always wanting more and more\
 Pour me some whiskey, to soothe out my plight\
-Dreams come play catch-up, in my head, tonight\ 
+Dreams come play catch-up, in my head, tonight
+
+---
+- https://youtu.be/H56nukFpy-c
+- https://youtu.be/eWm-XrwfE-M

@@ -39,4 +39,8 @@ Being sick!\
 You’re coming strong, when I’m alone\
 My vision’s gone ‘cause you’re fading away\
 I’m giving you just one more song\
-Before I send you off, running away\
+Before I send you off, running away
+
+---
+- https://youtu.be/UmFSR0hPdSg?t=151
+- https://youtu.be/zEsGSfKngzc

@@ -47,3 +47,10 @@ I was bound for glory, but now I’m free
 
 ---
 - https://youtu.be/PDsxzAxhTD0
+- https://youtu.be/2KKU5jPKB4Q
+- https://youtu.be/F5x0OYlZ9Hg?t=2259
+- https://youtu.be/j6OQSqvVZ10?t=57
+- https://youtu.be/tEgZIbsadhA?t=47
+- https://youtu.be/nvSVAjm16Ac
+- https://youtu.be/502Sk2EQ4C8
+- https://youtu.be/AkAsqL5HlhE

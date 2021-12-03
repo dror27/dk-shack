@@ -48,4 +48,8 @@ In spite of how absurd that crowd might be\
 Now isn’t it a pity, that a creature so refined\
 Will always to accepted as a member of mankind\
 By the mere fact he’s born and bound to die\
-Even if his life is just a lie\
+Even if his life is just a lie
+
+---
+- https://youtu.be/VgGX1zwnZXw?t=3075
+- https://youtu.be/rVCrCsA7JTM

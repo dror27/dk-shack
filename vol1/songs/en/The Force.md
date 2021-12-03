@@ -23,4 +23,8 @@ And we care not if it is just\
 What is that force that tears apart\
 The very thing it just helped to put up?\
 Is it the fire in your eyes\
-That kept me warm and is now burning my heart?\
+That kept me warm and is now burning my heart?
+
+---
+- https://youtu.be/Mo8B7nnKeRA
+- https://youtu.be/ltiCIseelL4

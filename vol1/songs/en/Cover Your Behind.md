@@ -30,4 +30,8 @@ Got you grabbing your boot\
 \
 Still I’m here, writing you a line\
 No more hiding, or keeping it all inside\
-Yes, I’ve been patient, now you cover your behind\
+Yes, I’ve been patient, now you cover your behind
+
+---
+- https://youtu.be/GargD_Dl0tQ?t=776
+- https://youtu.be/STfbAiXjPSk?t=602

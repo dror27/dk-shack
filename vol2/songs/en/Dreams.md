@@ -30,4 +30,9 @@ Oh, are you ready for fate to take over the wheel?\
 \
 Can a guy even dream about a woman who sings\
 Without running away from the girl of his dreams\
-Can a guy even dream?\
+Can a guy even dream?
+
+---
+- https://youtu.be/v9N7NiT6BBE?t=0
+- https://youtu.be/aTN683EW26s
+- https://youtu.be/KWnYG7n8FZ0

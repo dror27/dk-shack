@@ -24,6 +24,13 @@ Like in a July parade\
 Until you reach for her heart in a fight\
 Against your moral decay\
 \
-She's so keen, like a mean machine
+She's so keen, like a mean machine\
 And she'll never stop, or let the ball get dropped\
 Until she wins\
+
+---
+- https://youtu.be/SBW4zcg3HYA
+- https://youtu.be/feaF0Gw27Kg?t=894
+- https://youtu.be/0MBuH4IIjhA?t=3
+- https://youtu.be/6zzea2qSAYg
+- https://youtu.be/vlmkK2g7zt0

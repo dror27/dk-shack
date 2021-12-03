@@ -50,4 +50,9 @@ You'll be on your own, and still, you’ll feel warm\
 \
 You'll walk with no shoes alone with your darling\
 You'll stand in the wind with no coat and be smiling\
-And you will feel young and whole, for simply Being yourself\
+And you will feel young and whole, for simply Being yourself
+
+---
+- https://youtu.be/baNRW4JCEzQ
+- https://youtu.be/0Vw-Nv7IpYs
+- https://youtu.be/F_pempzQKFk

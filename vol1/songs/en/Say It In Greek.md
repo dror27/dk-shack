@@ -25,4 +25,8 @@ Say it in English, say it in Greek\
 Put your mind to it\
 Come on baby, made it stick\
 It’s OK\
-Anyway I’ll stay\
+Anyway I’ll stay
+
+---
+- https://youtu.be/jKtkRva5Gzk?t=2
+- https://youtu.be/usMcAvu-ENU

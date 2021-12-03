@@ -50,4 +50,8 @@ Someone just posted an App for that on the Apple store\
 Tell our brothers not to come back home\
 Soon there’ll be a draft note by the door\
 Go tell our father’s graves what you already know\
-White man’s coming back for your soul\
+White man’s coming back for your soul
+
+---
+- https://youtu.be/F5x0OYlZ9Hg?t=1104
+- 

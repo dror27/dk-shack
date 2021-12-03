@@ -55,4 +55,12 @@ I'm happy to recede\
 Not ever to succeed\
 I'm warning you\
 'Cause my mind's already set\
-I won't pretend\
+I won't pretend
+
+---
+- https://youtu.be/GargD_Dl0tQ?t=1169
+- https://youtu.be/nAF3eRWg_o4?t=327
+- https://youtu.be/feaF0Gw27Kg?t=1435
+- https://youtu.be/VgGX1zwnZXw?t=1425
+- https://youtu.be/i1OXFOHpVxI?t=495
+- https://youtu.be/ZpMqZSAVTUQ

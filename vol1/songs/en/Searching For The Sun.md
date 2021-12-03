@@ -48,3 +48,7 @@ To be amazed
 
 ---
 - https://youtu.be/kplgRsMOtz8
+- https://youtu.be/feaF0Gw27Kg?t=1226
+- https://youtu.be/VgGX1zwnZXw?t=3437
+- https://youtu.be/_RID4Dhq80k
+- https://youtu.be/MuLct_WV5uA

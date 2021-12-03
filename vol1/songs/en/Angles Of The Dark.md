@@ -43,4 +43,9 @@ Just pull me closer to your heart\
 And if we’ll have a doubt\
 We’ll call the angles of the dark\
 And If we’ll scream and shout\
-We’ll pull each other, closer to our hearts\
+We’ll pull each other, closer to our hearts
+
+---
+- https://youtu.be/i1OXFOHpVxI?t=1104
+- https://youtu.be/JDgDYmoGut4
+- https://youtu.be/D8yZdtZ0Oa0

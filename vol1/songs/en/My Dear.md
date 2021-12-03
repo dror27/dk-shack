@@ -40,4 +40,7 @@ It's been six hours since we last kissed my dear\
 \
 Now every round feels like first and last\
 Like I've always been there, even in the past\
-It's been six hours since we last kissed my dear\
+It's been six hours since we last kissed my dear
+
+---
+- https://youtu.be/7Er3BTa_dH8

@@ -35,4 +35,7 @@ And tell me you're scared?\
 If you're for or against\
 Given me up, or trying your best\
 So stop, don't look around\
-For answers you've already found\
+For answers you've already found
+
+---
+- https://youtu.be/rD-Q3UEbQhk

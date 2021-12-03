@@ -45,4 +45,10 @@ For your mind to be nursed\
 Still you’re collecting favors from your folks\
 There’s really nothing left for talk\
 “Just give me cash, and I’ll be out\
-The neighbors watching, I’ll won’t shout"\
+The neighbors watching, I’ll won’t shout"
+
+---
+- https://youtu.be/i1OXFOHpVxI?t=1513
+- https://youtu.be/SnFhITm32VA
+- https://youtu.be/ZWe2_s4dWkQ
+- https://youtu.be/ElLJnMEQhh4

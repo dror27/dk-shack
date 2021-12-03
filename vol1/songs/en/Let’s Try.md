@@ -34,4 +34,9 @@ It's time now for peace!\
 Don't be shy, to ask me why\
 Open your mind, come step inside\
 And if you try, then you'll know why\
-A man must walk alone sometimes\
+A man must walk alone sometimes
+
+---
+- https://youtu.be/DCXCftniCE8
+- https://youtu.be/6SbU7uz52NU
+- https://youtu.be/-o7eHgXSoDc

@@ -39,4 +39,16 @@ Or should he go out to fulfill\
 His new dream, up on the hill?\
 \
 And thank them all for the ride\
-Wave his hand and smile with pride?\
+Wave his hand and smile with pride?
+
+---
+- https://youtu.be/GargD_Dl0tQ?t=265
+- https://youtu.be/jE0o3NO0gP4
+- https://youtu.be/JzvxQXNTEVA
+- https://youtu.be/STfbAiXjPSk?t=6
+- https://youtu.be/VgGX1zwnZXw?t=6
+- https://youtu.be/i1OXFOHpVxI?t=96
+- https://youtu.be/MZLBz98BVyA
+- https://youtu.be/3IyZxoRxOtY?t=304
+- https://youtu.be/eoiUwKLqGx8
+- https://youtu.be/1uXmXafLJ7M
