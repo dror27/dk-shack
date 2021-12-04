@@ -58,4 +58,9 @@ for their employer” day or night\
 But little did he know\
 He was a target for a manhunt also\
 A hundred million pounds\
-Out for his soul\
+Out for his soul
+
+---
+- https://soundcloud.com/drorkessler/furlough-fraud-song-verses-1-2-private
+- https://soundcloud.com/drorkessler/furlough-fraud-verse-1-writing-draft
+
