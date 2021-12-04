@@ -58,5 +58,7 @@ For her emory to follow\
 On the footsteps of her mind\
 \
 Now it's all brand new\
-Shining, sparking blue (青い)\
+Shining, sparking blue (青い)
 
+---
+- https://soundcloud.com/drorkessler/footsteps-of-your-mind
