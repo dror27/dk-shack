@@ -48,4 +48,7 @@ Gagging as ball\
 To lay silent in refrain\
 In the face of love so tall\
 \
-All God's dangers ...\
+All God's dangers ...
+
+---
+- https://soundcloud.com/drorkessler/nocturnal-premonitions
