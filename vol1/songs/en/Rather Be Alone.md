@@ -28,4 +28,7 @@ Yes, I can be a stranger to you, now that would be a feat\
 But I rather be alone, singing you this song\
 Drifting, picking stones, weathering the storm\
 Yes, I rather be alone, rolling on my own\
-Flirting on the phone, watching soft porn\
+Flirting on the phone, watching soft porn
+
+---
+- https://soundcloud.com/drorkessler/rather-be-alone
