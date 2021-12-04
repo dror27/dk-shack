@@ -34,3 +34,4 @@ Sent you back to castle, forever not to speak
 
 ---
 - https://youtu.be/ihrUPYAOXNQ
+- https://soundcloud.com/drorkessler/when-im-done-deflecting-songwriting-session
