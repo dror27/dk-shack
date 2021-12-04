@@ -47,4 +47,7 @@ If you’re feeling the same, please do not speak\
 ‘Cause there ain’t nothing we can do\
 What I’m saying is god’s honest truth\
 Our love was like the love between a mouse and a cat\
-But a cat, it loves no one, for it’s just a cat\
+But a cat, it loves no one, for it’s just a cat
+
+---
+- https://soundcloud.com/drorkessler/bialik-26-folk-festival-full-set#t=5:53
