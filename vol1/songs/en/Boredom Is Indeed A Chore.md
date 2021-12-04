@@ -46,3 +46,4 @@ Dreams come play catch-up, in my head, tonight
 - https://drorkessler.bandcamp.com/track/boredom-is-indeed-a-chore-hava-mahler
 - https://soundcloud.com/drorkessler/boredom-is-indeed-a-chore
 - https://soundcloud.com/drorkessler/boredom-is-indeed-a-chore-w-background-material
+- https://soundcloud.com/drorkessler/so-holy-so-lonely-songwriting-session
