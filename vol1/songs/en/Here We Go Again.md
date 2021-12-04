@@ -49,4 +49,8 @@ Here we go again, pretending we’re just friends\
 Here we go again,telling there’s no end\
 \
 But the time, it keeps on rolling by\
-And your mind, it keeps on wanting love\
+And your mind, it keeps on wanting love
+
+---
+- https://soundcloud.com/drorkessler/here-we-go-again-busy-demo
+- https://soundcloud.com/drorkessler/here-we-go-again-guitars-only-demo
