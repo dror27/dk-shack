@@ -76,4 +76,7 @@ Reader of charts\
 Language juggler at the door\
 Let him in\
 It be tomorrow\
-Not a single day before\
+Not a single day before
+
+---
+- https://soundcloud.com/drorkessler/dethrone
