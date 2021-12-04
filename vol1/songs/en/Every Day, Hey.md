@@ -28,4 +28,7 @@ But in the meantime, I’ll go swimming in the bay\
 ‘Cause every day is just another day (hey)\
 A day you might be leaving or back to stay\
 Everyday is just another day (hey)\
-A day I might be headed down your way\
+A day I might be headed down your way
+
+---
+- https://soundcloud.com/drorkessler/every-day-hey
