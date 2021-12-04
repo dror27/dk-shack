@@ -57,3 +57,4 @@ And probably every day
 - https://drorkessler.bandcamp.com/track/matters-of-the-heart
 - https://soundcloud.com/drorkessler/matters-of-the-heart
 - https://soundcloud.com/drorkessler/matters-of-the-heart-elec-4
+- https://soundcloud.com/drorkessler/matters-of-the-heart-songwriting-draft
