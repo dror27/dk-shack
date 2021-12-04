@@ -52,7 +52,4 @@ In the garden, in groups of six
 
 ---
 - https://youtu.be/T4inaJZqb3w
-
-
-
-
+- https://soundcloud.com/drorkessler/in-the-garden-in-groups-of-six-writing-session
