@@ -58,3 +58,4 @@ I was bound for glory, but now I’m free
 - https://soundcloud.com/drorkessler/bialik-26-folk-festival-full-set#t=19:29
 - https://soundcloud.com/drorkessler/bound-for-glory-1
 - https://soundcloud.com/drorkessler/bound-for-glory-gilad-mix
+- https://soundcloud.com/drorkessler/bound-for-glory-london-aftermath
