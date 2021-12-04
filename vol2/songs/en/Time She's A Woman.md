@@ -71,4 +71,7 @@ Her name but a token\
 Given at birth\
 She’s now a-waiting on me\
 \
-'Cause time she’s a fast ...\
+'Cause time she’s a fast ...
+
+---
+- https://soundcloud.com/drorkessler/time-shes-a-woman-20-speedup
