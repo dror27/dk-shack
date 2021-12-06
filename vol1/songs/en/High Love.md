@@ -28,4 +28,7 @@ Is this high love or are we tripping?\
 And then you kiss me on the cheek\
 I smile and say that I love you\
 And then we rush back to the streets\
-The crowd’s our high love palace true\
+The crowd’s our high love palace true
+
+---
+- https://soundcloud.com/drorkessler/high-love
