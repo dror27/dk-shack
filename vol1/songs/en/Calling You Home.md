@@ -32,3 +32,4 @@ Calling you, when you're alone:\
 - https://drorkessler.bandcamp.com/track/calling-you-home
 - https://soundcloud.com/drorkessler/calling-you-home-live-in-d
 - https://soundcloud.com/drorkessler/06-calling-you-home-rpm2012
+- https://soundcloud.com/drorkessler/opening-for-itamar-rothschild#t=0:00
