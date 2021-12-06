@@ -51,4 +51,5 @@ Nothing but a liar\
 And a pants chaser through the years
 
 ---
-- https://drorkessler.bandcamp.com/track/goodbye  
+- https://drorkessler.bandcamp.com/track/goodbye
+- https://soundcloud.com/drorkessler/goodbye
