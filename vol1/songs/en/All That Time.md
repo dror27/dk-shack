@@ -30,3 +30,5 @@ All that time, I’ve been writing this song
 
 ---
 - https://drorkessler.bandcamp.com/track/all-that-time
+- https://soundcloud.com/drorkessler/21-all-that-time-2
+- https://soundcloud.com/drorkessler/20-all-that-time-1
