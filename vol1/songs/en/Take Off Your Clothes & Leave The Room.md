@@ -34,3 +34,4 @@ I’m gonna make you mine
 - https://youtu.be/Ed-aebZ7bwE
 - https://youtu.be/_4Vmnm2nwBk
 - https://drorkessler.bandcamp.com/track/take-off-your-cloths-and-leave-the-room
+- https://soundcloud.com/drorkessler/take-off-your-clothes-and-leave-the-room-songwriting-session
