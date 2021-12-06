@@ -28,3 +28,4 @@ And I will stop resenting you when you stop resenting me\
 ---
 - https://youtu.be/lOVIfi_h0T4
 - https://drorkessler.bandcamp.com/track/stop-resenting-scott-pilgrim-launchpad-mcquack
+- https://soundcloud.com/drorkessler/stop-resenting-scott-pilgrim-launchpad-mcquack
