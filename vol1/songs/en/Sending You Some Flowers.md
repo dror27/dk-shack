@@ -48,3 +48,5 @@ To say goodbye
 - https://soundcloud.com/drorkessler/flowers
 - https://soundcloud.com/drorkessler/flowers-1
 - https://soundcloud.com/drorkessler/sending-you-some-flowers
+- https://soundcloud.com/drorkessler/sending-you-some-flowers-full-mix
+- https://soundcloud.com/drorkessler/sending-you-some-flowers-min-mix
