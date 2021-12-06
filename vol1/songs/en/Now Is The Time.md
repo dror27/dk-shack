@@ -35,3 +35,4 @@ Now is the time, let go of mankind, the world is fine
 - https://drorkessler.bandcamp.com/track/now-is-the-time
 - https://drorkessler.bandcamp.com/track/now-is-the-time-mod
 - https://soundcloud.com/drorkessler/now-is-the-time-rough-arrangement-idea
+- https://soundcloud.com/drorkessler/now-is-the-time-songwriting-session
