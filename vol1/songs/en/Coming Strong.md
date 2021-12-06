@@ -46,3 +46,4 @@ Before I send you off, running away
 - https://youtu.be/zEsGSfKngzc
 - https://drorkessler.bandcamp.com/track/coming-strong
 - https://soundcloud.com/drorkessler/05-coming-strong-1
+- https://soundcloud.com/drorkessler/07-coming-strong-rpm2012
