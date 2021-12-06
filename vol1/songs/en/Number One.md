@@ -19,3 +19,4 @@ When your own life has just began
 - https://youtu.be/Hs60cJ-qY-Y
 - https://youtu.be/8dSQsophmbo
 - https://drorkessler.bandcamp.com/track/number-one
+- https://soundcloud.com/drorkessler/number-one-songwriting-draft
