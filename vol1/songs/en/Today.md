@@ -30,3 +30,4 @@ Today, the feeling's gone away
 ---
 - https://drorkessler.bandcamp.com/track/today-1998
 - https://soundcloud.com/drorkessler/today-circa-1998
+- https://soundcloud.com/drorkessler/today-bare-version
