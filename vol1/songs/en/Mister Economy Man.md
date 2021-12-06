@@ -58,4 +58,7 @@ Yes, I admit, I got me some dreams\
 Hey mister economy man
 Come close, let me give you a hand\
 Help you better understand\
-The shallow land on which you stand\
+The shallow land on which you stand
+
+---
+- https://soundcloud.com/drorkessler/mister-economy-man-songwriting-draft
