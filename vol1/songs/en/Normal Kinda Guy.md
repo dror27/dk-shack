@@ -31,4 +31,7 @@ What did you expect?\
 I'm telling myself\
 No more drama and red-eye\
 I'm cutting it out,\
-I’m just a normal kinda guy\
+I’m just a normal kinda guy
+
+---
+- https://soundcloud.com/drorkessler/normal-kinda-guy
