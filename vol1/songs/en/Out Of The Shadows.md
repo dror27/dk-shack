@@ -42,3 +42,4 @@ Down again, your way
 
 ---
 - https://drorkessler.bandcamp.com/track/out-of-the-shadows
+- https://soundcloud.com/drorkessler/out-of-the-shadows-songwriting-jam
