@@ -46,4 +46,7 @@ Can you do this for me, my dear?\
 Or go play with a hose\
 Stick some matches under the stove\
 Go get your smile all polished up\
-And maybe then I’ll crack you up\
+And maybe then I’ll crack you up
+
+---
+- https://soundcloud.com/drorkessler/guidelines-for-getting-my-attention-draft
