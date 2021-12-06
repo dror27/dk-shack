@@ -37,3 +37,4 @@ Yes, I’ve been patient, now you cover your behind
 - https://youtu.be/STfbAiXjPSk?t=602
 - https://drorkessler.bandcamp.com/track/cover-your-behind
 - https://soundcloud.com/drorkessler/02-cover-your-behind-levontin
+- https://soundcloud.com/drorkessler/cover-your-behind-songwriting-take
