@@ -31,3 +31,4 @@ I don’t care!\
 - https://youtu.be/srAtkFOm60k
 - https://drorkessler.bandcamp.com/track/situations
 - https://soundcloud.com/drorkessler/08-situations-rpm2012
+- https://soundcloud.com/drorkessler/opening-for-itamar-rothschild#t=9:02
