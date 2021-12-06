@@ -63,3 +63,4 @@ And you will feel young and whole, for simply Being yourself
 - https://soundcloud.com/drorkessler/being-yourself-rehearsal-w
 - https://soundcloud.com/drorkessler/09-being-yourself-bonus-track
 - https://soundcloud.com/drorkessler/05-being-yourself-rpm2012
+- https://soundcloud.com/drorkessler/being-yourself-live-eilat-isr
