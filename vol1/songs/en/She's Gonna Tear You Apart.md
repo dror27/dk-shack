@@ -29,4 +29,7 @@ But ain't that a shame\
 \
 She's gonna tear you apart\
 She'll put a hole in your bleeding heart\
-She's make you a fool, for being so cool\
+She's make you a fool, for being so cool
+
+---
+- https://soundcloud.com/drorkessler/shes-gonna-tear-you-a-part
