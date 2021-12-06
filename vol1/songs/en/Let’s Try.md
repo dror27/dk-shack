@@ -42,3 +42,4 @@ A man must walk alone sometimes
 - https://youtu.be/-o7eHgXSoDc
 - https://drorkessler.bandcamp.com/track/lets-try
 - https://soundcloud.com/drorkessler/lets-try-live-in-d-negev
+- https://soundcloud.com/drorkessler/03-lets-try-rpm2012
