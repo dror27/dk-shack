@@ -54,3 +54,5 @@ The neighbors watching, I’ll won’t shout"
 - https://youtu.be/ElLJnMEQhh4
 - https://drorkessler.bandcamp.com/track/peggy-may
 - https://soundcloud.com/drorkessler/peggy-may-live-in-d-negev
+- https://soundcloud.com/drorkessler/02-peggy-may-2
+- https://soundcloud.com/drorkessler/01-peggy-may-1
