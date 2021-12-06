@@ -40,3 +40,4 @@ You may for ever tarry.
 - https://drorkessler.bandcamp.com/track/to-the-virgins-to-make-much-of-time
 - https://soundcloud.com/drorkessler/to-the-virgins-to-make-much-of-time
 - https://soundcloud.com/drorkessler/to-the-virgins-to-make-much-of-time-1
+- https://soundcloud.com/drorkessler/gather-your-rosebuds-while-ye
