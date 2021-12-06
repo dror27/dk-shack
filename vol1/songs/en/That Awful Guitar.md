@@ -47,3 +47,4 @@ But you can take your fancy guitar and shove it down the drain\
 
 ---
 - https://soundcloud.com/drorkessler/nov-16-dror-2
+- https://soundcloud.com/drorkessler/take-that-guitar-songwriting-session-john-prine-style
