@@ -27,3 +27,4 @@ Every thought you think will come alive today\
 
 ---
 - https://drorkessler.bandcamp.com/track/every-word
+- https://soundcloud.com/drorkessler/12-every-word-1
