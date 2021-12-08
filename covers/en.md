@@ -1,5 +1,9 @@
 # English Coveres
 
+## City & Color
+
+Fragile Bird - https://youtu.be/8kWWtxvW0y8
+
 ## Conal Gallen
 
 Fifty Shades Of Grey - https://youtu.be/QCFH71HPKuE
@@ -7,6 +11,10 @@ Fifty Shades Of Grey - https://youtu.be/QCFH71HPKuE
 ## Dirk Powell
 
 Waterbound - https://youtu.be/scHOkEAA9MI
+
+## John Lennon
+
+Working Class Hero - https://youtu.be/_y5Ukpnei7M
 
 ## John Prine
 
@@ -18,9 +26,13 @@ Angle Land - https://youtu.be/ES6RMi4Pny4
 
 Chase The Dark Away - https://youtu.be/PAeR0mypv9s
 
-# Lucky Jim
+## Lucky Jim
 
 Let It Come Down - https://youtu.be/i1OXFOHpVxI?t=3468
+
+## Lynyrd Skynyrd
+
+Simple Man  - https://youtu.be/0mEDU_jBRbA
 
 ## Redgum
 
@@ -41,6 +53,8 @@ Piece Of Wood And Steel - https://youtu.be/ybZLsHrE9lE
 Genesis Hall - https://youtu.be/i1OXFOHpVxI?t=3168
 
 Genesis Hall - https://youtu.be/VgGX1zwnZXw?t=3751
+
+Genesis Hall - https://youtu.be/8C51vTt3NWo
 
 ## Rolling Stones
 
