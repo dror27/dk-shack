@@ -1,16 +1,48 @@
 # English Coveres
 
+## Conal Gallen
+
+Fifty Shades Of Grey - https://youtu.be/QCFH71HPKuE
+
 ## Dirk Powell
 
 Waterbound - https://youtu.be/scHOkEAA9MI
 
+## John Prine
+
+The Evening News - https://youtu.be/Vt4bxb5h8s4
+
 ## Jim White
+
+Angle Land - https://youtu.be/ES6RMi4Pny4
 
 Chase The Dark Away - https://youtu.be/PAeR0mypv9s
 
 ## Redgum
 
 The Diamantina Drover - https://youtu.be/je4XjuUkvrA?t=0
+
+## Rayland Baxter
+
+Bad Things - https://youtu.be/x4Tzj6IDVjM
+
+## Richard Dobson
+
+Hard By The Highway - https://youtu.be/1YOZ-dy4X_0
+
+Piece Of Wood And Steel - https://youtu.be/ybZLsHrE9lE
+
+## Rolling Stones
+
+Dead Flowers - https://youtu.be/s5OmG1REJi0
+
+## Steve Young
+
+Alabama Highway - https://youtu.be/3RhBEg4L0PI
+
+## Utah Phillips
+
+Rock Salt & Nails - https://youtu.be/dKgeipiF_kA
 
 ## Vic Chesnutt
 
