@@ -1,4 +1,4 @@
-# English Coveres
+# English Covers
 
 These are not great renditions, just recollections.
 
