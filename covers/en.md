@@ -1,5 +1,7 @@
 # English Covers
 
+https://youtu.be/j07jw4BKCgQ?t=254
+
 These are not great renditions, just recollections.
 
 ## Bruce Springsteen
@@ -32,7 +34,9 @@ Working Class Hero - https://youtu.be/_y5Ukpnei7M
 
 ## John Prine
 
-The Evening News - https://youtu.be/Vt4bxb5h8s4
+Quit Hollerin at Me - https://youtu.be/j07jw4BKCgQ?t=2398
+
+The Evening News - https://youtu.be/Vt4bxb5h8s4 https://youtu.be/j07jw4BKCgQ?t=3419
 
 ## Jim White
 
@@ -58,7 +62,7 @@ Bad Things - https://youtu.be/x4Tzj6IDVjM
 
 ## Richard Dobson
 
-Hard By The Highway - https://youtu.be/1YOZ-dy4X_0
+Hard By The Highway - https://youtu.be/1YOZ-dy4X_0 https://youtu.be/wKemLa5u35U
 
 Piece Of Wood And Steel - https://youtu.be/ybZLsHrE9lE
 
@@ -85,6 +89,10 @@ Apothecary Love - https://youtu.be/mNt3pbwgw3U
 ## Townes Van Zandt
 
 Rake - https://youtu.be/7m35MBrYieg
+
+## Traditional
+
+Brisk Lad - https://youtu.be/j07jw4BKCgQ?t=254
 
 Pancho and Lefty - https://youtu.be/hpFdkvHirmA
 
