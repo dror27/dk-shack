@@ -1,5 +1,11 @@
 # English Coveres
 
+These are not great renditions, just recollections.
+
+## Bruce Springsteen
+
+The River - https://youtu.be/yNJEpmKrPr8
+
 ## City & Color
 
 Fragile Bird - https://youtu.be/8kWWtxvW0y8
@@ -11,6 +17,14 @@ Fifty Shades Of Grey - https://youtu.be/QCFH71HPKuE
 ## Dirk Powell
 
 Waterbound - https://youtu.be/scHOkEAA9MI
+
+## Diego Garcia
+
+Under This Spell - https://youtu.be/oHHzYoz1n_M
+
+## Indigo Girls
+
+Hand Me Downs - https://youtu.be/KQVXi4-SE7w
 
 ## John Lennon
 
@@ -50,11 +64,7 @@ Piece Of Wood And Steel - https://youtu.be/ybZLsHrE9lE
 
 # Richard Thompson
 
-Genesis Hall - https://youtu.be/i1OXFOHpVxI?t=3168
-
-Genesis Hall - https://youtu.be/VgGX1zwnZXw?t=3751
-
-Genesis Hall - https://youtu.be/8C51vTt3NWo
+Genesis Hall - https://youtu.be/i1OXFOHpVxI?t=3168 https://youtu.be/VgGX1zwnZXw?t=3751 https://youtu.be/8C51vTt3NWo
 
 ## Rolling Stones
 
@@ -67,6 +77,10 @@ Alabama Highway - https://youtu.be/3RhBEg4L0PI
 ## The Decemberists
 
 We Both Go Down Together - https://youtu.be/VgGX1zwnZXw?t=1032
+
+## The Low Anthem
+
+Apothecary Love - https://youtu.be/mNt3pbwgw3U
 
 ## Townes Van Zandt
 
