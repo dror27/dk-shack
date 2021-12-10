@@ -132,11 +132,11 @@ Mariner's Grave - https://soundcloud.com/drorkessler/mariners-grave-the-standfie
 
 Rake - https://youtu.be/7m35MBrYieg https://soundcloud.com/drorkessler/rake-townes-van-zandt-cover
 
+Pancho and Lefty - https://youtu.be/hpFdkvHirmA
+
 ## Traditional
 
 Brisk Lad - https://youtu.be/j07jw4BKCgQ?t=254
-
-Pancho and Lefty - https://youtu.be/hpFdkvHirmA
 
 ## Utah Phillips
 
