@@ -6,6 +6,10 @@ These are not great renditions, just recollections.
 
 Talisman - https://soundcloud.com/drorkessler/talisman-all-them-witches-cover
 
+## Ben Caplan
+
+Seed Of Love - https://soundcloud.com/drorkessler/seed-of-love-ben-caplan-cover
+
 ## Billy Bragg
 
 Levi Stubbs' Tears - https://soundcloud.com/drorkessler/levi-stubbs-tears-billy-bragg
@@ -22,7 +26,7 @@ Fragile Bird - https://youtu.be/8kWWtxvW0y8 https://soundcloud.com/drorkessler/f
 
 ## Conal Gallen
 
-Fifty Shades Of Grey - https://youtu.be/QCFH71HPKuE https://soundcloud.com/drorkessler/fifty-shades-of-grey
+Fifty Shades Of Grey - https://youtu.be/QCFH71HPKuE https://soundcloud.com/drorkessler/fifty-shades-of-grey https://youtu.be/F0KJnVCrR5o
 
 ## Dirk Powell
 
@@ -30,7 +34,7 @@ Waterbound - https://youtu.be/scHOkEAA9MI
 
 ## Diego Garcia
 
-Under This Spell - https://youtu.be/oHHzYoz1n_M
+Under This Spell - https://youtu.be/oHHzYoz1n_M https://soundcloud.com/drorkessler/under-this-spell-diego-garcia
 
 ## Indigo Girls
 
@@ -42,9 +46,13 @@ Genesis Hall - https://youtu.be/i1OXFOHpVxI?t=3168 https://youtu.be/VgGX1zwnZXw?
 
 Crazy Man Michael - https://soundcloud.com/drorkessler/mad-man-michael-w-michal-taran https://soundcloud.com/drorkessler/crazy-man-michael-fc-cover
 
+## Frazey Ford
+
+Firecracker - https://soundcloud.com/drorkessler/firecracker
+
 ## Gillian Welch
 
-Caleb Meyer - https://youtu.be/tDdFgKaExoE https://soundcloud.com/drorkessler/caleb-weyer-gillian-welch
+Caleb Meyer - https://youtu.be/tDdFgKaExoE https://soundcloud.com/drorkessler/caleb-weyer-gillian-welch https://youtu.be/tDdFgKaExoE
 
 ## John Lennon
 
@@ -58,7 +66,7 @@ The Evening News - https://youtu.be/Vt4bxb5h8s4 https://youtu.be/j07jw4BKCgQ?t=3
 
 ## Jim White
 
-Angle Land - https://youtu.be/ES6RMi4Pny4
+Angle Land - https://youtu.be/ES6RMi4Pny4 https://soundcloud.com/drorkessler/angle-land-jim-white-cover
 
 Chase The Dark Away - https://youtu.be/PAeR0mypv9s
 
@@ -88,7 +96,7 @@ Bad Things - https://youtu.be/x4Tzj6IDVjM
 
 ## Richard Dobson
 
-Hard By The Highway - https://youtu.be/1YOZ-dy4X_0 https://youtu.be/wKemLa5u35U https://soundcloud.com/drorkessler/hard-by-the-highway-richard-dobson-cover
+Hard By The Highway - https://youtu.be/1YOZ-dy4X_0 https://youtu.be/wKemLa5u35U https://soundcloud.com/drorkessler/hard-by-the-highway-richard-dobson-cover https://youtu.be/zy0klBOsro8 https://youtu.be/wKemLa5u35U
 
 Piece Of Wood And Steel - https://youtu.be/ybZLsHrE9lE https://soundcloud.com/drorkessler/piece-of-wood-and-steel-richard-dobson-cover
 
