@@ -1,0 +1,5 @@
+### /spank/whack/pelt/lance/pitch/pick/cream/gumbo/jell/stick/hug/
+
+Spank me!, he said, with a silly grin, as if to ward off any chance she will be taking it too seriously. The first whack felt strange, surprisingly familiar. He always maintained it to be closer to a pelting match of sorts, an exercise in manly restraint. He felt the tingle of being touched. Suddenly a lancing shiver bolted up his spine. Mindful of the awkward setting, he let out a low pitch growl, as if to signal the impending colossally.
+
+She stopped, creaming with glee. The smell of gumbo soup mischievously penetrated his coma-like state. Everything jelled. They would stick it out, the endless longing, the rain, the desire to leave it all and elope. She deserved a hug, but then the soup boiled over.
