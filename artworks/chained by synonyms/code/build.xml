@@ -1,0 +1,39 @@
+<?xml version="1.0" encoding="UTF-8"?>
+<project name="Rosetta" default="dist" basedir=".">
+	
+  <property name="name" value="rosetta"/>
+
+  <property name="src" location="src"/>
+  <property name="lib" location="lib"/>
+  <property name="build" location="build"/>
+  <property name="dist" location="dist"></property>
+  <property name="tools" location="tools"/>
+
+  <target name="init">
+    <tstamp/>
+    <mkdir dir="${build}"/>
+  </target>
+
+  <target name="compile" depends="init" description="compile the source">
+    <javac srcdir="${src}" destdir="${build}">
+		<classpath>
+			<fileset dir="${lib}">						
+				<include name="*.jar"/>
+			</fileset>
+		</classpath>
+	</javac>
+  </target>
+
+  <target name="dist" depends="compile" description="generate the distribution">
+    <mkdir dir="${dist}"/>
+    <jar jarfile="${dist}/${name}-${DSTAMP}.jar" basedir="${build}">
+		<fileset dir="${lib}"/>
+    </jar>
+	<copy file="${dist}/${name}-${DSTAMP}.jar" tofile="${tools}/${name}.jar"/>
+  </target>
+
+  <target name="clean" description="clean up">
+    <delete dir="${build}"/>
+    <delete dir="${dist}"/>
+  </target>
+</project>
