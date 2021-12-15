@@ -16,4 +16,4 @@ Synonymatic journeys between words of seemingly opposite meanings
 
 ## Spank & Hug
 
-An affectionate BSDM [playback](playbook).
+An affectionate BSDM [playbook](playbook).
