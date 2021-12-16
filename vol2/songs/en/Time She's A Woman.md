@@ -25,7 +25,7 @@ Chase her you’d be breathless\
 Stop her you’ll die\
 But all of her wonders\
 Are here for the taking\
-The minutes, the hour\
+The minutes, the hours\
 The breadth of her thigh\
 \
 You’re tall as a pine\
