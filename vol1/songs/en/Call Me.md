@@ -11,7 +11,7 @@ You lost the sparkle in your eyes\
 Can you still recall your other life?\
 \
 Call me, I’m waiting by the phone\
-Counting milliseconds since you’re gone
+Counting milliseconds since you’re gone\
 Call me, I’m singing you this song\
 To keep you company when you’re alone\
 \
@@ -29,7 +29,7 @@ Call me, I’m waiting by the phone\
 Counting milliseconds since you’re gone\
 Call me, I’m singing you this song\
 To keep you company when you’re alone\
-\        
+\
 Maybe one day, when you’re at home\
 All fixed up, your child’s all grown\
 One a random station, you’ll hear this song\
