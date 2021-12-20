@@ -55,6 +55,11 @@ as Patrick Cannon, Barrister at law, writes:\
 “Employees on furlough cannot do any work\
 for their employer” day or night\
 \
+Still, unbeknownst to him,\
+John was committing (Furlough Fraud,)\
+A serious criminal offence,\
+So I’m told\
+\
 But little did he know\
 He was a target for a manhunt also\
 A hundred million pounds\
