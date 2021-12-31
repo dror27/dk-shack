@@ -8,9 +8,9 @@ I’d chart the ocean till I rescue you\
 If I’ll have a doubt\
 I’ll call the angels of the dark\
 And if I’ll scream and shout\
-I’ll pull you closer to my heart
+I’ll pull you closer to my heart\
 \
-If I were a horseman
+If I were a horseman\
 I’d saddle up and ride into your arms\
 Through fields of grief and sorrow\
 I’d lift you from your pit of boiling tar\
