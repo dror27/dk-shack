@@ -18,5 +18,4 @@ Drizzle off, as nature snorts\
 Not to be revered or explained,\
 Nor it be your conversation piece\
 But a private, solitary affair\
-A tryst\
-\
+A tryst
