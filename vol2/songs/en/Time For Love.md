@@ -1,7 +1,6 @@
 # Time For Love
 
-
-(in progress)
+(in progress)\
 \
 So many things I've left unnoticed\
 So many things I've left undone\
@@ -39,7 +38,7 @@ On my own\
 'Cause now it's time for love\
 It's time for you and me\
 Fly high as doves\
-\
+
 ---
 - https://soundcloud.com/drorkessler/song-220118
 
