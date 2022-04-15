@@ -1,4 +1,4 @@
-# Dark Peaks\
+# Dark Peaks
 
 Laying in bed\
 Moments before his release\
