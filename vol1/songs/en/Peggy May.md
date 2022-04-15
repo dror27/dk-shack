@@ -25,7 +25,7 @@ Collecting favors from your folks\
 There’s really nothing left for talk\
 “Just give me cash, and I’ll be out\
 The neighbors watching, I’ll won’t shout”\
-\        
+\
 But when they sweep the streets clean\
 With their big white cleansing machines\
 Will they show you mercy\
