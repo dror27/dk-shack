@@ -23,7 +23,7 @@ Here we go again, telling there’s no end\
 \
 But the time, it keeps on rolling by\
 And your mind, it keeps on wanting love\
-\        
+\
 Maybe this one will be saved\
 From this game you play so well\
 Thinking clearly only twists your head\
