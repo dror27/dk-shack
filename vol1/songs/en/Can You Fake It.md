@@ -20,14 +20,14 @@ Underneath a mattress\
 In your own bedroom, now you both know\
 Oh, but can you fake it?\
 \
-The pleasant life, the girls next door
+The pleasant life, the girls next door\
 The backyard chitchat about wooden floors\
 The second mortgage for a brand new\
 Ford The fucked-up prenup with a backdoor clause\
 The teenaged son he so adores\
 The perfect weather, oh, what a bore\
 Can you fake it?\
-\        
+\       
 I hope you’re happy\
 I wrote these verse, once before\
 When you came running\
