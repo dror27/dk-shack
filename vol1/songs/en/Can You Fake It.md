@@ -27,7 +27,7 @@ Ford The fucked-up prenup with a backdoor clause\
 The teenaged son he so adores\
 The perfect weather, oh, what a bore\
 Can you fake it?\
-\       
+\
 I hope you’re happy\
 I wrote these verse, once before\
 When you came running\
