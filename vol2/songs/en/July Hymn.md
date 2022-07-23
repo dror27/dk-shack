@@ -39,7 +39,7 @@ Freely roam we will\
 Ideas and countries sans-flu\
 \
 Yes, we will certainly head out\
-To be again secombed\
+To be again succumbed\
 By all that is alive\
 To be in love\
 \
@@ -53,7 +53,7 @@ My mind is blowing\
 Otherwise I would be calling\
 Free of care I will be rolling\
 But now I'm just scrolling\
-Through a screen that's full of moanings\
+Through a screen that's full of moaning\
 While countless bands are falling\
 We'll still be here comes morning\
 Oh, there's so much more to care for ... 'cause\
