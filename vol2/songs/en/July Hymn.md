@@ -35,7 +35,7 @@ In spirit, in soul\
 \
 Like them foxes and birds\
 Their freedom found anew\
-Freely roam we will\
+Freely roam we will too\
 Ideas and countries sans-flu\
 \
 Yes, we will certainly head out\
