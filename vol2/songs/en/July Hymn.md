@@ -2,40 +2,46 @@
 
 It's almost July now\
 Six months into this thing\
-Fingers tired of typing Pandemic\
+Fingers tired of typing\
 Eyes of watching but screens\
 \
-Though alive and active\
-Higher aspirations are abound\
-To dream, to desire, to be surprising\
-In this here town?\
+Though alive and healthy\
+Higher aspirations are surely abound\
+To dream, to desire, to be found\
+Where else but in this town?\
 \
-We plan, manage, wait,\
-Prepare, stay safe, awake\
+('cause) This is the new normal\
+Daily reports, closings and openings,\
+Personal peace, manufactured unrest\
+And don’t forget, Global Warming!\
+There's just so much to protest\
+\
+We plan, we manage, then we wait,\
+Prepare, stay safe and awake\
 But how about venturing afar\
 Stumbling for days, starting the car?\
 \
-Surely possible, but welcomed still?\
+Surely it's possible, but is it welcomed still?\
 Our ever adaptive spirit, now trained\
 Not only by society and government\
-For its own safety to be caged in facial garment, estranged\
+For its own safety to be caged in facial garment\
 \
-This is the new normal\
-Daily reports, closings and openings,\
-Personal peace, manufactured unrest\
-And don’t forget, Global Warming! Trump-o-fest!\
+This is the new normal ...\
 \
-Time to be moving,\
+It's time to be moving,\
 In spite of it all.\
 To be in space,\
-in spirit, in soul\
+In spirit, in soul\
 \
 Like them foxes and birds\
 Their freedom found anew,\
 Freely roam we will\
-Ideas and countries aflu\
+Ideas and countries sans-flu\
 \
-And so we head out,\
+Yes, we will certainly head out,\
 To be again secombed\
-By all that is alive,\
+By all that is alive\
 To be in love\
+\
+This is the new normal ...\
+
