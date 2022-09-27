@@ -41,4 +41,4 @@ Of her long nights of snow\
 Of her beauty now hidden\
 In her maze down below\
 \
-Morning it’s time ...\
+Morning it’s time ...

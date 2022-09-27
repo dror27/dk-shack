@@ -26,7 +26,7 @@ Against your moral decay\
 \
 She's so keen, like a mean machine\
 And she'll never stop, or let the ball get dropped\
-Until she wins\
+Until she wins
 
 ---
 - https://youtu.be/SBW4zcg3HYA

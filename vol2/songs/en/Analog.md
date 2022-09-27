@@ -18,4 +18,4 @@ Here, seconds tick\
 In wanting, in flight\
 We both partake delight\
 The colder the water\
-The joyful the conquest, the fright\
+The joyful the conquest, the fright

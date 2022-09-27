@@ -8,4 +8,4 @@ That’s where you’re at\
 Play by relation\
 Scheme sensibly, plot\
 Math’s just an art form\
-Power of sums, sort\
+Power of sums, sort

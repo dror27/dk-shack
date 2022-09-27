@@ -63,7 +63,7 @@ Is melting like snow\
 Keep them high heels on\
 It’s better this way\
 You won’t be running\
-Well, at least not today\
+Well, at least not today
 
 ---
 - https://drorkessler.bandcamp.com/track/bonus-a-christmas-song

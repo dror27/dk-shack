@@ -43,4 +43,4 @@ There ain’t no judgement on a seventh day\
 Now I’m a man with no Sundays\
 Can’t do no right, can’t do no wrong\
 But I’m happy and sad just the same\
-‘Cause any other way, I won’t be singing this song\
+‘Cause any other way, I won’t be singing this song

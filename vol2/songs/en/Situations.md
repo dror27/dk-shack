@@ -24,7 +24,7 @@ Situations ...\
 They’re coming back again\
 Where its going\
 Oh really ...\
-I don’t care!\
+I don’t care!
 
 ---
 - https://youtu.be/UmFSR0hPdSg?t=0

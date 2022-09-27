@@ -30,4 +30,4 @@ There’s no happy end to the tale\
 There’s just the pain\
 \
 Two people laid out in the sand\
-A whole world trying to understand\
+A whole world trying to understand

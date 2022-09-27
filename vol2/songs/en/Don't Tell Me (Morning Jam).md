@@ -57,7 +57,7 @@ Now I don’t want to\
 You can do whatever you want\
 I’m simply here, take what want\
 Don’t tell me to write this song\
-‘Cause I might just do that too\
+‘Cause I might just do that too
 
 ---
 - https://soundcloud.com/drorkessler/dont-tell-me-morning-jam

@@ -28,5 +28,5 @@ On Charles Ave. and Tate\
 No one knows the hows and whys\
 But they both passed on cake, low fat\
 They climaxed together, of course\
-Exactly as planned, with chains or without, I now forget\
+Exactly as planned, with chains or without, I now forget
  

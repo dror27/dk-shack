@@ -33,4 +33,4 @@ Crystal visions, ‘round her hilltop dorm\
 Slowly in rot or cheerful as storm\
 Knowledge is short, on all things to come\
 For being alive or in catacombs\
-She, as is time, in secret takes form\
+She, as is time, in secret takes form

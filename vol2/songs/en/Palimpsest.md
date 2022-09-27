@@ -23,4 +23,4 @@ Acknowledgement mends\
 In words, sight,\
 A smile and a tone\
 A new child is born,\
-Sans burying a faun \
+Sans burying a faun

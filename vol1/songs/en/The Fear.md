@@ -13,4 +13,4 @@ Preach my way to heaven, heed my nature's call\
 And sometimes, the fear is just a fear\
 An fictional stumbling block, to be sincere\
 I make it up to be all, just to be clear\
-To get one more round, with you, my dear\
+To get one more round, with you, my dear

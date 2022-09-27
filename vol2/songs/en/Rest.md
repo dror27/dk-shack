@@ -8,4 +8,4 @@ Wiped your texts\
 Sorry for nothing\
 Time now for rest\
 Hearts keep pounding\
-Dreaming of next\
+Dreaming of next

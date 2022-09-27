@@ -14,5 +14,4 @@ And leave you scarred\
 You’ll end up moon\
 Struck in a bar\
 Don’t bet your life\
-On a shooting star\
-\
+On a shooting star

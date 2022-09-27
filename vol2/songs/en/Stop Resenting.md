@@ -23,7 +23,7 @@ Drinking beer and smoking cigarettes,\
 Killing brain cells and killing me,\
 \
 Oh, stop pretending that this isn't really ending,\
-And I will stop resenting you when you stop resenting me\
+And I will stop resenting you when you stop resenting me
 
 ---
 - https://youtu.be/lOVIfi_h0T4
