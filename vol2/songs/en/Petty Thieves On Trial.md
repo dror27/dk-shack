@@ -45,7 +45,9 @@ There ain't no ending\
 No one’s coming bailing us out\
 We’re just hanging here\
 For a while \
-Like petty thieves on trialNow comes the sentence\
+Like petty thieves on trial\
+\
+Now comes the sentence\
 You both face the judge of all\
 Time - It is the great oppressor\
 A libertarian of lost souls\
