@@ -1,5 +1,7 @@
 # Listen To Your Heart
 
+(stream of consciousness)\
+\
 Let me take you on a journey\
 Through time\
 You might think I'm happy\
@@ -27,5 +29,40 @@ Listen to your heart\
 It might be telling you\
 Now's the time to stop\
 \
+And yet, I might be amuzing\
+I might be your weekend boy\
+You can hear it coming\
+I'm gonna' rhyme you with a toy\
+\
+Better listen to your heart\
+Is it say: Stop?\
+Better listen to your heart\
+It might be saying: better stop\
+\
+But your kisses are so sweet\
+And you told me that I'm somthing ...\
+So confusing so I thought\
+There's something to be had here\
+Or not\
+\
+You might be sequestered pn a hill\
+But there's something stronger than your will\
+I'm gonna' climb that hill\
+\
+Yes, I'm rambling through this song\
+You may never hear it\
+But then again I might be sending it\
+So you'll see there's nothing here to fear\
+\
+Better listen to to your heart\
+If it's telling you to stay away\
+Keep your distance dear,\
+Honey, listen to what I'm saying
+
+---
+- https://soundcloud.com/drorkessler/listen-to-your-heart-stream-of
+
+
+
 
 
