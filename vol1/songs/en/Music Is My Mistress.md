@@ -34,3 +34,5 @@ And you, my love, are here to stay
 - https://soundcloud.com/drorkessler/music-is-my-mistress-amos-2
 - https://soundcloud.com/drorkessler/music-is-my-mistress-acoustic
 - https://soundcloud.com/drorkessler/music-is-my-mistress
+- https://soundcloud.com/drorkessler/music-is-my-mistress-new-melody
+- https://soundcloud.com/drorkessler/music-is-my-mistress-new-melody-2
