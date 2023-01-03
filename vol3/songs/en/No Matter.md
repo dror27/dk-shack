@@ -42,7 +42,7 @@ Ain't no sin\
 No matter where you came from\
 No matter where you've been\
 \
-For playing ...\
+For playing ...
 
 ---
 - https://soundcloud.com/drorkessler/no-matter-placeholder-melody
