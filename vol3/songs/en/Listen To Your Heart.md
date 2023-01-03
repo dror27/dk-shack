@@ -45,7 +45,7 @@ So confusing so I thought\
 There's something to be had here\
 Or not\
 \
-You might be sequestered pn a hill\
+You might be sequestered םn a hill\
 But there's something stronger than your will\
 I'm gonna' climb that hill\
 \
