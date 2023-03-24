@@ -2,7 +2,7 @@
 
 There I was, undetected \
 Running like the fire \
-I was deeply unalerted \
+I was deeply un-alerted \
 To what was going inside your mind \
 \
 All them thoughts were wondering \
@@ -28,7 +28,7 @@ From my voice, or from it all \
 Yet I'm still rambling \
 Like them good old days \
 I clipping red light showing \
-Is it a sign that youre not there \
+Is it a sign that you're not there \
 \
 Not thinking about tomorrow \
 Not thinking about you \
@@ -42,7 +42,7 @@ Not gone for ever \
 Just here and now \
 Just here and now \
 Just here and now \
-Just here and now \
+Just here and now
 
 ---
 
