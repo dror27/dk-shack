@@ -5,7 +5,7 @@ And I'm not asking for a fight\
 I just want to be at home\
 \
 You might think that I'm afraid\
-To call you names, to be a friend\
+To call you names, to befriend\
 I'm just trying to be at home\
 \
 Is it a crime? is it a sin?\
