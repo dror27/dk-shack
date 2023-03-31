@@ -1,4 +1,4 @@
-# Lay Your Hose\
+# Lay Your Hose
 
 Lay your hose flat and wide\
 The fountain of youth will provide\
