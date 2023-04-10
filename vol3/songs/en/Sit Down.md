@@ -1,5 +1,7 @@
 # Sit Down
 
+(stream of consciousness) \
+\
 Sit down - put your feet back on the ground \
 Sit down - put your feet back on the ground \
 The train has passed \

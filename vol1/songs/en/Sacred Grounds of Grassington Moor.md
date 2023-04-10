@@ -1,4 +1,4 @@
-# Sacred Grounds of Grassington Moor
+# Sacred Grounds Of Grassington Moor
 
 I walk the darkened mine shafts of Grassington Moor\
 The Sacred Grounds\

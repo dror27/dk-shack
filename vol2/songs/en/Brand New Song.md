@@ -15,14 +15,14 @@ Still, I got a brand new song \
 Ain’t that something else? \
 \
 Now you know why most heads of state \
-Got a secret drawer full of poems \
+Keep a secret drawer full of poems \
 It’s the only way they can be outing themselves \
-They’re crossdressing with decorum \
+Crossdressing with decorum \
 \
 But a song is like a gun in court \
 A rolling bottle down a theatre wrought \
-Something so loaded it’s with honesty froth \
-Guess why it's shunned by normal folks\
+Something so loaded, with honesty froth \
+That's why it's shunned by normal folks\
 \
 I’ll got three balls, \
 Well now you know that too \
@@ -34,14 +34,14 @@ And I got a brand new song \
 You must be loving it too \
 \
 Now you know why most heads of state \
-Got a secret drawer full of poems \
+Keep a secret drawer full of poems \
 It’s the only way they can be outing themselves \
-They’re crossdressing with decorum \
+Crossdressing with decorum \
 \
 But a song is like a gun in court \
 A rolling bottle down a theatre wrought \
-Something so loaded, it’s with honesty froth \
-Guess why it's shunned by normal folks\
+Something so loaded, with honesty froth \
+That's why it's shunned by normal folks\
 \
 So now I’m the head of a state \
 With no borders and laws at all \

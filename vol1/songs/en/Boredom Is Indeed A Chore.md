@@ -3,7 +3,7 @@
 So holy, so lonely\
 From her bosom down to her feet\
 Comes summer’s harvest, in the fields\
-She’s let it all rip\
+She’ll let it all rip\
 \
 So tall, to fall\
 Bronze lips, melted cheeks\

@@ -21,7 +21,7 @@ To a working camp for the poor\
 Sweating hours on the floor\
 \
 They’ll form and mold it to the specs\
-Of a gay-ish Californian cat\
+Of a gayish Californian cat\
 Stick it inside an alumni case\
 Sanitize it from their breath\
 \

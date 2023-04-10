@@ -26,7 +26,7 @@ Well, nothing is true\
 I am what you see\
 \
 Just a lonely survivor\
-A heart-shaped as a man\
+A heart shaped as a man\
 Won’t you be a real darling\
 Come hold my hand\
 \

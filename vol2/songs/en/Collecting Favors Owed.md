@@ -28,7 +28,7 @@ Comes what may, a friend, a foe\
 We’re way past justice\
 Now it’s time for all out war\
 I’m gonna get collecting\
-On all the factors that I’m owed\
+On all the favors that I’m owed\
 \
 Maybe tomorrow\
 Or some other day I’m bold\
@@ -52,7 +52,7 @@ Do exactly as you’re told”\
 \
 “Always mind the weather\
 Stir your boat back into shore\
-the love you’ll find in Jesus\
+The love you’ll find in Jesus\
 Is the one you’re looking for”\
 \
 Well, we’re way past final judgement\

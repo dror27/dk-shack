@@ -1,15 +1,15 @@
-# Bowl of Trix
+# Bowl Of Trix
 
 The knife was sharp\
 The cut deep, deep enough\
 But no blood\
-No gushing of any kind,\
+No gushing of any kind\
 No hearts were damaged\
-In this crushing of kind\
+In this crushing of my kind\
 \
 But still, I got a free fix\
 A great big bowl of Trix\
-Into heaven agazing I peeked\
+Into heaven a-gazing I peeked\
 Sneak snake by the gate\
 Do animals kill or hate?\
 \
@@ -22,9 +22,10 @@ Riding high on cosmic coasts\
 \
 But still, I got a free fix\
 A great big bowl of Trix\
-Into heaven agazing I peeked\
+Into heaven a-gazing I peeked\
 Sneak snake by the gate\
 Do animals kill or hate?\
+\
 Underneath the substrate\
 Every wind sounds chafe\
 To no restraint abides my faith\
@@ -40,9 +41,10 @@ Today\
 \
 But still, I got a free fix\
 A great big bowl of Trix\
-Into heaven agazing I peeked\
+Into heaven a-gazing I peeked\
 Sneak snake by the gate\
 Do animals kill or hate?\
+\
 Underneath the substrate\
 Every wind sounds chafe\
 To no restraint abides my faith

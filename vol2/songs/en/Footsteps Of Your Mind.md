@@ -20,10 +20,10 @@ Sinking fingers into her maze\
 “She's quite perplexing”, one of them says\
 As he chafes his collar, he’s out of phase\
 \
-'Cause you've got no recall\
+'Cause she's got no recall\
 Know nothing at all\
-You're about to fall ...\
-Here comes the call:\
+You're about to fall\
+Here comes the call\
 \
 But I can’t bring back the summer\
 I can’t hug you from afar\
@@ -44,8 +44,8 @@ Soon you’re spinnin’, you're out of phase\
 \
 'Cause you've got no recall\
 Know nothing at all\
-You're about to fall ...\
-Better make the call:\
+You're about to fall\
+Better make the call\
 \
 'Cause you can’t bring back the summer\
 You can’t hug her from afar\
@@ -54,11 +54,11 @@ That she never crossed your mind\
 \
 For all those years you've been a-changing\
 Waiting patiently in line\
-For her emory to follow\
+For her memory to follow\
 On the footsteps of her mind\
 \
 Now it's all brand new\
-Shining, sparking blue (青い)
+Shining, sparking blue
 
 ---
 - https://soundcloud.com/drorkessler/footsteps-of-your-mind

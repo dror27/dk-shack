@@ -10,18 +10,18 @@ Things were looking up\
 \
 Then COVID hit, customer traffic slowed\
 John went on furlough, while Steve and Anne\
-Kept the store open to serve community cyclists.\
+Kept the store open to serve community cyclists\
 \
-When Steve’s back pain returned,\
+When Steve’s back pain returned\
 John stepped to work again\
-Money was tight so John stayed on furlough,\
+Money was tight so John stayed on furlough\
 \
-Doing a good deed for his dad.\
-(being a good fellow)\
+Doing a good deed for his dad\
+Being a good fellow\
 \
 Unbeknownst to him,\
-John was committing (Furlough Fraud,)\
-A serious criminal offence,\
+John was committing\
+A serious criminal offence\
 So I’m told\
 \
 Little did he know\
@@ -36,7 +36,7 @@ Deliberately claims back wages\
 under the job retention scheme\
 \
 For an employee they know\
-Is carrying out work for them.\
+Is carrying out work for them\
 Silently, behind the scene\
 \
 But Furlough Fraud can take other forms as well\
@@ -49,21 +49,23 @@ Asking staff to ‘volunteer’ while under furlough\
 To continue to work hidden back on their homes\
 Not to mention holding all or part of their pay\
 \
-Or simply,\
-as Patrick Cannon, Barrister at law, writes:\
+Or simply\
+As Patrick Cannon, Barrister at law, writes:\
 \
 “Employees on furlough cannot do any work\
 for their employer” day or night\
 \
-Still, unbeknownst to him,\
-John was committing (Furlough Fraud,)\
-A serious criminal offence,\
+Still, unbeknownst to him\
+John was committing\
+A serious criminal offence\
 So I’m told\
 \
 But little did he know\
 He was a target for a manhunt also\
 A hundred million pounds\
-Out for his soul
+Out for his soul\
+\
+And what's a Furlough Fraud after all?
 
 ---
 - https://soundcloud.com/drorkessler/furlough-fraud-song-verses-1-2-private

@@ -5,14 +5,18 @@ Alas must wait her turn, ‘till her landlady’s struck\
 By her newly found joy, be it a prince, or just a boy\
 By sheer mistake or simply luck, a rattle snake, an aardvark\
 \
-Hurray new order! come the shadows, come the dark\
+Hurray new order!\
+Come the shadows\
+Come the dark\
 \
-For only in them, all hail can finally breaks loose\
+For only in them, all hell can finally breaks loose\
 All bodily praise, language misuse\
-By our new found joy, be it love, or just foil\
+By our new found joy, be it love, or just a foil\
 By sheer mistake or simply luck, no depression, no aardvarks\
 \
-Hurray new order! come the shadows, come the dark\
+Hurray new order!\
+Come the shadows\
+Come the dark\
 \
 Cheer the farmhouse, dank, sleazy\
 Rule the night, dusk to dawn, seize it

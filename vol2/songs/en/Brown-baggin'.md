@@ -1,4 +1,4 @@
-# Brown-baggin'
+# Brown-Baggin'
 
 A man pushing a stroller\
 No baby inside\
@@ -7,7 +7,7 @@ Got nothing to hide\
 \
 But me I’m still walking\
 That very fine line\
-Of looking and clean and sober\
+Of looking clean and sober\
 Brown-baggin' the wine\
 \
 You call yourself freedom\
@@ -23,12 +23,12 @@ Won’t you give in a try\
 Expose your true nature\
 Top, bottom and sides\
 All welcome, the sign says\
-‘Cause now its your time\
+‘Cause now it's your time\
 \
 Be abundant in feelings\
 Shine like a star\
 Find the elusive\
-The Waded down, marred
+The waded down, marred
 
 ---
 - https://soundcloud.com/drorkessler/brown-baggin-the-wine

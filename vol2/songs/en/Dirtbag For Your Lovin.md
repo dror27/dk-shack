@@ -1,36 +1,79 @@
 # Dirtbag For Your Lovin'
 
-From a window of a kitchen I keep a lookout for surprise\
-On the faces of the neighbors when we’re walking naked by\
-But expressions they’re expensive in this dirty part of town\
-Even Jesus and his saviors would be hard pressed for a frown\
+From a window of a kitchen\
+I keep a lookout for surprise\
+On the faces of the neighbors\
+when we’re walking naked by\
 \
-Guess I’m back to cooking, in my old lonesome ways\
-Chopping everything I get my hands on into a pot and praying\
-Using alcohol for water, mixing rice and chicken bones\
-Wishing summer was all over and for you to come back home\
+But expressions they’re expensive \
+In this dirty part of town\
+Even Jesus and his saviors\
+Would be hard pressed for a frown\
 \
-So come winter, come lonely, come time for me to go\
-Though I might be here tomorrow, know my heart’s already gone\
-So come crying, come sorrow, come time for doing wrong\
-I’m a dirtbag for your lovin', but I’ve got to let you go\
+Guess I’m back to cooking\
+In my old lonesome ways\
+Chopping everything I get my hands on \
+Into a pot and praying\
 \
-Still it’s summer here and you just called to say you’re coming soon\
-Though my glass is never empty, it’s ‘cause I’m drinking like a fool\
-Who can only write when cooking, who’s enchanted with the blues\
-Alway longing for a stranger, ‘stead of spending time with you\
+Using alcohol for water\
+Mixing rice and chicken bones\
+Wishing summer was all over\
+And for you to come back home\
 \
-So come …\
+So come winter, come lonely\
+Come time for me to go\
+Though I might be here tomorrow\
+Know my heart’s already gone\
 \
-Should I go for Georgia's peaches, be engulfed by Mexico\
-All my friends are heading westwards, guess it’s time for me to go\
-Yes I’m ready for the taking, severed up my family too\
-Since I gave away the mansion for some matress time with you\
+So come crying, come sorrow\
+Come time for doing wrong\
+I’m a dirtbag for your lovin'\
+But I’ve got to let you go\
 \
-So come …\
+Still it’s summer here and you just called\
+To say you’re coming soon\
+Though my glass is never empty\
+It’s ‘cause I’m drinking like a fool\
 \
-So I’ll wrap this song for no one, but my future self and me\
-Put my silent brand new earphones and enjoy this here last meal
+Who can only write when cooking\
+who’s enchanted with the blues\
+Always looking for a stranger\
+Instead of spending time with you\
+\
+So come winter, come lonely\
+Come time for me to go\
+Though I might be here tomorrow\
+Know my heart’s already gone\
+\
+So come crying, come sorrow\
+Come time for doing wrong\
+I’m a dirtbag for your lovin'\
+But I’ve got to let you go\
+\
+Should I reach for Georgia's peaches\
+Be engulfed by Mexico\
+All my friends are heading westwards\
+Guess it’s time for me to go\
+\
+Yes I’m ready for the taking\
+Severed up my family too\
+Since I gave away the mansion\
+For some matress time with you\
+\
+So come winter, come lonely\
+Come time for me to go\
+Though I might be here tomorrow\
+Know my heart’s already gone\
+\
+So come crying, come sorrow\
+Come time for doing wrong\
+I’m a dirtbag for your lovin'\
+But I’ve got to let you go\
+\
+So I’ll wrap this song for no one\
+But my future self and me\
+Put my silent brand new earphones\
+And enjoy this here last meal
 
 ---
 - https://soundcloud.com/drorkessler/dirtbag-for-your-lovin

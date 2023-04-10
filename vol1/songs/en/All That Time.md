@@ -21,7 +21,8 @@ Showed you my garden, and gave you my hand\
 Will you step outside, and be my friend?\
 Will you step outside, and call me your man?\
 \
-All that time, it’s mine to keep Forever and again\
+All that time, it’s mine to keep\
+Forever and again\
 Your voice I hear, your lips they move\
 For me it’s all the same\
 \

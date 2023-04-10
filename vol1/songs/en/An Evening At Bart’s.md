@@ -78,7 +78,7 @@ Is not with money bought\
 But by doing the essentials\
 By thinking some bare thoughts\
 By picking apples from the ground\
-Before they all rot\
+Before they rot\
 \
 So stand up, go outside\
 Into the cold\

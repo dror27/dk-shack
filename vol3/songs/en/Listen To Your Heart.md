@@ -12,7 +12,7 @@ I've been scheming 'about your mind\
 All that time\
 I've been trying to get you from behind\
 \
-You might think I'm lazy,\
+You might think I'm lazy\
 Well, I'm trying my best\
 To get you to be crazy\
 To follow all my fads\
@@ -35,7 +35,7 @@ You can hear it coming\
 I'm gonna' rhyme you with a toy\
 \
 Better listen to your heart\
-Is it say: Stop?\
+Is it saying: Stop!\
 Better listen to your heart\
 It might be saying: better stop\
 \
@@ -56,7 +56,7 @@ So you'll see there's nothing here to fear\
 \
 Better listen to to your heart\
 If it's telling you to stay away\
-Keep your distance dear,\
+Keep your distance dear\
 Honey, listen to what I'm saying
 
 ---

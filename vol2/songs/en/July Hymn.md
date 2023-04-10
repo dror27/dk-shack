@@ -10,7 +10,7 @@ Higher aspirations are surely abound\
 To dream, to desire, to be found\
 Where else but in this town?\
 \
-('cause) This is the new normal\
+This is the new normal\
 Daily reports, closings and openings\
 Personal peace, manufactured unrest\
 And don’t forget, Global Warming!\
@@ -26,7 +26,11 @@ Our ever adaptive spirit, now trained\
 Not only by society and government\
 For its own safety to be caged in facial garment\
 \
-This is the new normal ...\
+This is the new normal\
+Daily reports, closings and openings\
+Personal peace, manufactured unrest\
+And don’t forget, Global Warming!\
+There's just so much to protest\
 \
 It's time to be moving\
 In spite of it all\
@@ -43,10 +47,10 @@ To be again succumbed\
 By all that is alive\
 To be in love\
 \
-This is the new normal ...\
-\
-...\
-And don't forget global warming\
+This is the new normal\
+Daily reports, closings and openings\
+Personal peace, manufactured unrest\
+And don’t forget, Global Warming!\
 LGBT rights, women's polling\
 Ukraine is falling\
 My mind is blowing\
@@ -56,5 +60,5 @@ But now I'm just scrolling\
 Through a screen that's full of moaning\
 While countless bands are falling\
 We'll still be here comes morning\
-Oh, there's so much more to care for ... 'cause\
-This is the new normal ...
+\
+So much to protest

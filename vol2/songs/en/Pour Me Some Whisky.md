@@ -14,7 +14,7 @@ Until I’m dead and gone\
 ‘Till I’m safe back in your heaven\
 Whole and all alone\
 ‘Till the sky opens up\
-For angles singalong\
+For angels singalong\
 Pour me some whisky\
 For I’m dead and gone\
 \

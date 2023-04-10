@@ -27,7 +27,7 @@ It’s a god meets the ever turning sword of hope\
 \
 So you better start sniffing real ass\
 Join the party boy, lick boots of brass\
-Be a contributing citizen of the nation\
+Be a contributing citizen of this nation\
 Support this wonderful god-dammed creation\
 \
 Be happy you’re allowed to stay infected\
@@ -42,7 +42,7 @@ On the corner of something stupid and our trash-talking czar\
 \
 Drink what you’re served, boy, don’t ask why\
 We’ll tell you who you are, and then you’ll die\
-Raise your head, look at the sky\
+Raise your head, look up to the skies\
 God’s flying a Cessna, writing your future on high\
 \
 Blink once and it be gone\
@@ -63,7 +63,7 @@ Divinity, order, leaders inept\
 Weep for him no more\
 He’s just driftwood, swept onto our shore\
 It’s anthem time now, bow your head \
-kiss the floor, sing this instead:”\
+Kiss the floor, sing this instead:”\
 \
 The quick brown fox jumps over the lazy dog
 

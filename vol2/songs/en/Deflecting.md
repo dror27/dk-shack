@@ -6,7 +6,7 @@ Of sending five rejections\
 Of fending off the gale\
 \
 Of opportunities and romantic crushes\
-That seems to be hitting my door\
+That seem to be hitting my door\
 But none of them seem to matter\
 Since hung up the phone on you call\
 \
@@ -18,9 +18,12 @@ Into the brightness of soul\
 Yes, its true, I’m the greatest\
 Deflector of all that is kind\
 If it comes in a package I’ll return it\
-If it show on my doorstep, I won’t sign\
+If it shows on my doorstep, I won’t sign\
 \
-When I’m done deflecting ...\
+When I’m done deflecting\
+I’ll carry you in exposed\
+Into the darkness of my memories\
+Into the brightness of soul\
 \
 I’ve built up a wall, to surround me complete\
 Set my armour in place, I've taken no defeat\

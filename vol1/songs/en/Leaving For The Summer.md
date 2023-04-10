@@ -5,7 +5,7 @@ I’m leaving for the summer\
 Where the trees are plenty\
 Where I can finally relate\
 \
-I’ve been waiting for a sign\
+I’ve been waiting for a while\
 I’ve been plotting out inside\
 I’ve been wasted all that time\
 \
@@ -27,7 +27,7 @@ How I took you from behind\
 How I turned myself to be blind\
 How I’m really not that kind\
 \        
-Now you heard my story\
+Now that you heard my story\
 Do you think it’s fine\
 That I will go out hungry\
 And forget you for a while?\

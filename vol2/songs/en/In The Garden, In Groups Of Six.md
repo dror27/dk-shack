@@ -5,8 +5,8 @@ So two weeks from now, I should join if I’m around\
 They’re missing just a person, to get them up to six\
 And in case I can not make it, I better tell them quick\
 \
-‘Cause the slots, they keep on filling, there’s life here on the line\
-There bottles to be had, and casserole with thyme\
+‘Cause them slots, they keep on filling, there’s life here on the line\
+There are bottles to be had, and casserole with thyme\
 And this here said occasion is scheduled to be prime\
 It's lacking me in body, to make it all just rhyme \
 \

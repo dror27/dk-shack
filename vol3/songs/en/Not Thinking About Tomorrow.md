@@ -1,5 +1,7 @@
 # Not Thining About Tomorrow
 
+(stream of consciousness) \
+\
 There I was, undetected \
 Running like the fire \
 I was deeply un-alerted \

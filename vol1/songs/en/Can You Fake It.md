@@ -15,15 +15,15 @@ The second mortgage for a brand new Ford\
 Can you really fake it?\
 When he calls you honey, at the store\
 While shopping for bullets\
-For the gun, he neatly stores\
+For a gun, he neatly stores\
 Underneath a mattress\
 In your own bedroom, now you both know\
 Oh, but can you fake it?\
 \
 The pleasant life, the girls next door\
 The backyard chitchat about wooden floors\
-The second mortgage for a brand new\
-Ford The fucked-up prenup with a backdoor clause\
+The second mortgage for a brand new Ford\
+The fucked-up prenup with a backdoor clause\
 The teenaged son he so adores\
 The perfect weather, oh, what a bore\
 Can you fake it?\

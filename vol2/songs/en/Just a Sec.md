@@ -1,4 +1,4 @@
-# Just a Sec
+# Just A Sec
 \
 Let me take just a sec\
 To lay on the sofa, go over the facts\
@@ -30,17 +30,17 @@ Make you breakfast, walk your pet\
 \
 Let me take just a sec\
 To play this song, so you won’t forget\
-Yes, some folk will call it wrong\
-It’ll be in the public, before too long\
+Yes, some folks will call it wrong\
+It’ll be in the public before too long\
 I might never be your one-and-all\
 A perfect ending to this Cock and Bull\
 \
 Let me take just a sec\
 To lay on the sofa, go over the facts\
 Yes, we’re both married, that’s true\
-Ain’t it my luck that I married to you?\
+Ain’t it my luck that I'm married to you?\
 Guess, we’re not alone here too\
-Cut the lights Hon, I’m coming through
+Cut the lights Honey, I’m coming through
 
 ---
 - https://youtu.be/906XbVcvRFg

@@ -16,7 +16,7 @@ Tangled in her name\
 Eat bananas\
 Wash the pots\
 Wait for christmas\
-Go count the votes\
+Count the votes\
 \
 Fix the bets\
 Tilt the table\

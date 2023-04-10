@@ -37,7 +37,7 @@ And instill some fear\
 \
 So listen closely, you prick\
 I got me a copy of your hard disk\
-So you better, explode\
+So you better explode\
 Or else your mom will get sick\
 \
 Hey mister, can’t you tell\

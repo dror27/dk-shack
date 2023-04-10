@@ -19,8 +19,10 @@ The Lord has a plan, for all suffering and strife\
 Keep all women at bay, for if they be truly free\
 Aggression of men be just a faint memory\
 \
-For the rule book has been written, by boys just like me\
-With fear in their hearts, of being forgotten, out at sea\
+For the rule book has been written\
+By boys just like me\
+With fear in their hearts\
+Of being forgotten out at sea\
 \
 For a woman of means, independent and able\
 Would never keep a man as a horse in a stable\

@@ -11,7 +11,7 @@ Is there something calling you to get back home?\
 A voice you hear at night on the telephone?\
 Is there something calling you to get back home?\
 Calling you, when you're alone:\
-“Get Back Home”\
+Get back home\
 \
 People think you're some machine\
 Grinding out plans and schemes\
@@ -24,7 +24,7 @@ Is there something calling you to get back home?\
 A voice you hear at night on the telephone?\
 Is there something calling you to get back home?\
 Calling you, when you're alone:\
-“Get Back Home”
+Get back home
 
 ---
 - https://youtu.be/i1OXFOHpVxI?t=1969

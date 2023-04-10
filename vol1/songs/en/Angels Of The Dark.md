@@ -1,4 +1,4 @@
-# Angles Of The Dark
+# Angels Of The Dark
 
 If I were a sailor\
 I’d sail the highest seas and come for you\
@@ -36,12 +36,12 @@ Would you leave your castle?\
 Your fortress, for my windy shores?\
 \
 If you’ll have a doubt\
-Just call the angles of the dark\
+Just call the angels of the dark\
 And If you’ll scream and shout\
 Just pull me closer to your heart\
 \
 And if we’ll have a doubt\
-We’ll call the angles of the dark\
+We’ll call the angels of the dark\
 And If we’ll scream and shout\
 We’ll pull each other, closer to our hearts
 

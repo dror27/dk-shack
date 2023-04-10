@@ -39,9 +39,11 @@ I’m a wave, a formula of crave\
 Unknown, now I’m gone \
 \
 I have harden with the years\
-Swallowed all of my tears\
+Swallowed all my tears\
 Overcame most of my fears\
-Fucked some of my own peers
+Fucked some of my own peers\
+\
+Now I'm gone, unknown
 
 ---
 - https://youtu.be/GmMjx5_7-6I

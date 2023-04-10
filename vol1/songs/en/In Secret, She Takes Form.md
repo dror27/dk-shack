@@ -27,7 +27,7 @@ Whilst in forest, erected stands a hut\
 \
 Comes summer, ice to rivers succumb\
 Schools of fish to terms they come\
-Ghostly figurines as tree sticks form\
+Ghostly figurines as tree-sticks form\
 Crystal visions, ‘round her hilltop dorm\
 \
 Slowly in rot or cheerful as storm\

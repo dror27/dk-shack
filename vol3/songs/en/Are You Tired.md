@@ -1,5 +1,7 @@
 # Are You Tired
 
+(stream of consciousness) \
+\
 It's cold here at night\
 And I'm not asking for a fight\
 I just want to be at home\
@@ -17,7 +19,7 @@ I'm not trying to be brave\
 I'm not trying to get it all, to save\
 I'm just trying to be at home\
 \
-'cause everything we've said and done\
+'Cause everything we've said and done\
 May wash away, may be gone\
 And I'm just trying, to get home\
 \
@@ -37,7 +39,7 @@ Is it the right to call you now?\
 Or should I wait until you'll tell me somehow?\
 Are you feeling all alone?\
 \
-'cause in a moment\
+'Cause in a moment\
 I'll be gone
 
 ---

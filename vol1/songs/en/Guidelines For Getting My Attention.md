@@ -33,7 +33,7 @@ You laughed it off, like you didn’t care\
 But now you’re calling, you want it back\
 Well ... how about that ...\
 \
-How about you peel off the mask\
+How about we peel off the mask\
 Play a little game now\
 A game I call\
 “Risking Your Lust”\
