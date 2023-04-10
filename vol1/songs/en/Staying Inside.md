@@ -5,7 +5,7 @@ If the skies are gonna’ fall\
 When I’ll flip back the switch\
 And be back in control\
 Will it be dark?\
-Orwill I be able to fix it all?\
+Or will I be able to fix it all?\
 \
 ‘Cause you know the steps\
 We need to take to stand up tall\

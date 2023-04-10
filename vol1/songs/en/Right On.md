@@ -8,7 +8,7 @@ The night is yours to leave it all behind\
 \
 Hang on\
 The sun is shining brighter than the clouds\
-And if you live, you’d better leave a sign\
+And if you leave, you’d better leave a sign\
 Lovers cry as birds fly high\
 Leaving past regrets for bright tomorrows\
 \

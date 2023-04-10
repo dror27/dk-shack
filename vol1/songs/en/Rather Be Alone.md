@@ -21,7 +21,7 @@ Yes, I rather be alone, rolling on my own\
 Flirting on the phone, watching soft porn\
 \
 Yes, I can be a stranger to you, the one you’ll never meet\
-We could be crossing paths, right now, on thevery same street\
+We could be crossing paths, right now, on the very same street\
 Standing quiet, side by side, staring down at our feet\
 Yes, I can be a stranger to you, now that would be a feat\
 \

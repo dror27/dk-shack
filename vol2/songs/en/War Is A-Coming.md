@@ -1,5 +1,7 @@
 # War Is A-Coming
 
+(translated from Hebrew)\
+\
 War is a-coming girl\
 Launder them sheets\
 We’ll hang in shelters\

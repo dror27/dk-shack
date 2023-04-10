@@ -5,7 +5,7 @@ It gets bigger every day\
 Won't you come down and hug me\
 My baby's away\
 \
-My will is strong\
+My will it is strong\
 It gets stronger every day\
 Won't you come down and test me\
 My baby's away\
@@ -19,7 +19,7 @@ You might think that I'm dirty\
 Getting dirtier every day\
 Won't you come down and clean me\
 My baby's away\
-/        
+\        
 Life seems so hard\
 That's what I hear people saying\
 Well I'm gonna make it easy on you\

@@ -8,7 +8,7 @@ Even if she’s now marked as “busy” \
 You think your thoughts can travel \
 Close to the surface \
 Like a missile that’s gone rogue \
-And touch her slender body, and do no wrong \
+Touch her body, do no wrong \
 Daylight for you almost gone \
 \
 You’re in a timezone unmarked \
@@ -26,13 +26,13 @@ Does she think of you \
 When she’s roaming seas and peaks? \
 Or is she forgetful as a bird, will she ever speak? \
 Does she think of you \
-When she’s in bed, before she asleep \
+When in bed, before she sleeps \
 Or is she over and out, will she ever speak of you?\
 \
 So you practice dignity \
 As your heart keeps on shrinking \
 Traveling the other way \
-Makes her hard for reaching \
+To make her harder for reaching \
 \
 And still you’re well aware \
 Of every breath she’s talking \
@@ -44,7 +44,7 @@ Does she think of you \
 When she’s roaming seas and peaks? \
 Or is she forgetful as a bird, will she ever speak? \
 Does she think of you \
-When she’s in bed, before she asleep \
+When in bed, before she sleeps \
 Or is she over and out, will she ever speak of you?
 
 ---

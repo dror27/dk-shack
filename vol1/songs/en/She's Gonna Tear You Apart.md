@@ -12,7 +12,8 @@ To take her everywhere\
 She keeps all their names\
 Buried in her head\
 \
-Still you want her, you think you need her\
+Still you want her\
+You think you need her\
 But ain't that a shame\
 \
 ‘Cause she's gonna tear you apart\
@@ -24,7 +25,8 @@ But you're not in them, pal\
 She's got everything\
 Money ever buys\
 \
-Still you want her, you think you need her\
+Still you want her\
+You think you need her\
 But ain't that a shame\
 \
 She's gonna tear you apart\

@@ -55,7 +55,7 @@ Read me Breitbart for a thrill\
 Glorify the way you rule me\
 Play me endless Tears For Fears\
 \
-(mad world ... mad world ...)
+(it's a mad mad world ...)
 
 ---
 - https://youtu.be/q6yTqxGikjM

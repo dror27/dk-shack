@@ -15,7 +15,7 @@ But then, you’ll feel at home, ‘cause it’s easy\
 \
 To be strong, to be safe\
 To be exactly you and no one else\
-To be free of having to see\
+To be free from having to see\
 Opinionated people just like me\
 You’ll be the queen, of some wonderland\
 In a Disney fantasy\

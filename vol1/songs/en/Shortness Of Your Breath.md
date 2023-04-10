@@ -11,7 +11,7 @@ And living seems so awkward, now that he's away\
 So you close the door, trying to forget\
 \
 All the moments that you had\
-The way he made you laugh When he grabbed your hand\
+The way he made you laugh when he grabbed your hand\
 Threw you face-down on the bed\
 Cutting all the lights\
 To make you just a bit scared\
@@ -31,7 +31,7 @@ And now,\
 Your blood runs freely down the column of your spine\
 The love you had is gone, but darling you're still fine\
 And you might find it shocking, but you are still alive\
-Darling, now's the time to turn the lights back on\
+Now's the time to turn the lights back on\
 \
 So in the morning when you wake\
 Suddenly, you realize there's really no mistake\

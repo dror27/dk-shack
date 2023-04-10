@@ -28,8 +28,8 @@ I work so hard trying to fix myself\
 I try so hard, but I can't escape\
 \        
 My mind\
-The life, I could find\
-The lies, I left behind\
+The life I could find\
+The lies I left behind\
 And you, you are so kind\
 \
 It's been six hours since we last kissed my dear\

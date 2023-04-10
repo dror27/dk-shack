@@ -4,7 +4,7 @@ Now is the time, to step out of line\
 Spend your last dime, commit minor crimes\
 Now is the time, let go of mankind, the world is fine\
 
-“Fear comes out of thought” - So he says\
+“Fear comes out of thought” - so he says\
 “The limits of matter are the ones that you dread”\
 “Senseless desire, the cause of it all”\
 “You are what you are, just because”\

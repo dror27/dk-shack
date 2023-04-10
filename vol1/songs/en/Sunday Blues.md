@@ -16,7 +16,7 @@ Mommy woke us early, saying:\
 “We’re gonna go to church and you’re gonna smile”\
 \
 I made love to my first girl on a Sunday\
-Man ... it felt so good I almost cried\
+Man, it felt so good I almost cried\
 Her brother got out the shotgun, saying: \
 “You’re gonna marry this girl or you gonna die”\
 \
@@ -25,7 +25,7 @@ Kissed his cheek and left that very same day\
 ‘Cause I knew I was a deadbeat\
 I wouldn’t be doing him good anyway\
 \
-Now I’m sitting on porch, and it’s a Sunday\
+Now I’m sitting on my porch, and it’s a Sunday\
 Lord, I know I’m gonna die today\
 My soul is ready for you now\
 Won’t you come down and take it away\

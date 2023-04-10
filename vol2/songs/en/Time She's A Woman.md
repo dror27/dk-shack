@@ -21,12 +21,9 @@ Caveman drawings\
 Of horses and doves\
 \
 'Cause time she’s a fast running old woman\
-Chase her you’d be breathless\
-Stop her you’ll die\
-But all of her wonders\
-Are here for the taking\
-The minutes, the hours\
-The breadth of her thigh\
+Chase her you’d be breathless, stop her you’ll die\
+But all of her wonders are here for the taking\
+The minutes, the hours, the breadth of her thigh\
 \
 You’re tall as a pine\
 Soft as an straw\
@@ -38,7 +35,10 @@ Orange in color\
 Happy as a baby\
 Stinging as a bee\
 \
-'Cause time she’s a fast ...\
+'Cause time she’s a fast running old woman\
+Chase her you’d be breathless, stop her you’ll die\
+But all of her wonders are here for the taking\
+The minutes, the hours, the breadth of her thigh\
 \
 Chalk mark they’d lead you\
 So follow them gently\
@@ -50,7 +50,10 @@ Reflections are fading\
 Bodies to enter\
 Forthwith to unite\
 \
-'Cause time she’s a fast ...\
+'Cause time she’s a fast running old woman\
+Chase her you’d be breathless, stop her you’ll die\
+But all of her wonders are here for the taking\
+The minutes, the hours, the breadth of her thigh\
 \
 Life ain’t for ever\
 The young ones are saying\
@@ -71,7 +74,10 @@ Her name but a token\
 Given at birth\
 She’s now a-waiting on me\
 \
-'Cause time she’s a fast ...
+'Cause time she’s a fast running old woman\
+Chase her you’d be breathless, stop her you’ll die\
+But all of her wonders are here for the taking\
+The minutes, the hours, the breadth of her thigh
 
 ---
 - https://soundcloud.com/drorkessler/time-shes-a-woman-20-speedup

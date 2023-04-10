@@ -5,7 +5,7 @@ Say you want me, say you don’t\
 Say you’re coming home, say you’re gone\
 Say you want to sleep alone\
 \
-Say you’re happy, say you’re cross\
+Say you’re happy, say you’re crossed\
 Say you’re an angel, say you’re a ghost\
 Say it’s time for our final toast\
 Say you’re ready, say I’m lost\

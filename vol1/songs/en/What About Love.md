@@ -37,7 +37,7 @@ By keeping tabs under the covers\
 But what about the love?\
 Is it getting higher, softer\
 Louder, better,\
-Younger or richer? (thicker?)\
+Younger or richer?\
 Or is it getting older?
 
 ---

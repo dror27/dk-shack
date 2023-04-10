@@ -21,7 +21,7 @@ On what you are and what you ain’t\
 Before it gets too late\
 Your time is up, don’t hesitate\
 \
-You future hasn’t happened yet\
+Your future hasn’t happened yet\
 So stop the searching and create\
 Make some love and meditate\
 Roll your own dice, make a bet\
@@ -39,7 +39,7 @@ On what you are and what you ain’t\
 Before it gets too late\
 Your time is up, don’t hesitate\
 
-You future hasn’t happened yet\
+Your future hasn’t happened yet\
 So stop the searching and create\
 Make some love and meditate\
 Roll your own dice, make a bet

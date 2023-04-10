@@ -10,7 +10,7 @@ So I can make advances and never copulate\
 \
 Here I am, texting a line\
 Writing something that’ll draw your mind\
-Temping you wander and stray\
+Temping you to wander and stray\
 But I know I’ll never do it anyway\
 \
 Safely protected in my married state\

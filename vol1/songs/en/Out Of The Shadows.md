@@ -1,5 +1,7 @@
 # Out Of The Shadows
 
+(stream of consciousness) \
+\
 I met a young girl, down in Mexico\
 She walked me out of the way\
 We hitched a ride across the blue sky\

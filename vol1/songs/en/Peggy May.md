@@ -11,6 +11,7 @@ Picking pieces off the floor\
 Never asking for some more\
 \
 And here you are, back at the door\
+\
 Collecting favors from your folks\
 There’s really nothing left for talk\
 “Just give me cash, and I’ll be out\
@@ -30,7 +31,8 @@ But when they sweep the streets clean\
 With their big white cleansing machines\
 Will they show you mercy\
 Or will they be so keen?\
-On sweeping you out Along with their sins?\
+On sweeping you out\
+Along with their sins?\
 \
 So Peggy May, if I hereby may\
 Do you right for just a single day\

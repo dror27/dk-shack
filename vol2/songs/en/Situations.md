@@ -5,26 +5,26 @@ Like a million plates of steel\
 And a vision\
 I can never quite fulfill\
 But if I show up on your porch tonight\
-I’ll probably will get killed ...\
+I’ll probably will get killed\
 \
-Situations ...\
+Situations\
 They’re coming back again\
 Where its going\
-Oh really ...\
-I don’t care!\
+Oh really\
+I don’t care\
 \
 I got me a mission\
 To eradicate all hate\
 And a group of people\
 Doing every thing I say\
 But if I tell them to go hug a tree\
-They cut it down instead ...\
+They cut it down instead\
 \
-Situations ...\
+Situations\
 They’re coming back again\
 Where its going\
-Oh really ...\
-I don’t care!
+Oh really\
+I don’t care
 
 ---
 - https://youtu.be/UmFSR0hPdSg?t=0

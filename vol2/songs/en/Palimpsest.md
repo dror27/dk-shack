@@ -2,7 +2,7 @@
 
 Great painters have always been known\
 To paint over a piece, its magic now gone\
-With white, short of fixing new canvas to frame\
+With white, short of fixing new canvas to a frame\
 Lest that picture would speak and thus put them to shame\
 \
 A painter I’m not, so I could not tell\
@@ -16,11 +16,11 @@ But to set it a-sailing onto horizons\
 It needs be floating, free as a lion\
 \
 More than a sense\
-Of purpose and plan,\
-Esthetics and faith, \
+Of purpose and plan\
+Esthetics and faith \
 Acknowledgement mends\
 \
-In words, sight,\
+In words, sight\
 A smile and a tone\
-A new child is born,\
+A new child is born\
 Sans burying a faun

@@ -35,7 +35,7 @@ Your own actions, you won’t pretend\
 Ask forgiveness while you can\
 Before mortality marks your end\
 \
-‘Cause the longer you, asking why\
+‘Cause the longer you wait, asking why\
 The harder the blow, the louder the cry\
 On your judgement, your day of trial\
 While your own horrors project to the sky\

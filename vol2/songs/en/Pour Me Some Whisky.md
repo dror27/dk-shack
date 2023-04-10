@@ -23,15 +23,15 @@ Till I’m safe and sound again\
 Never will I walk the darkness \
 Without you as a friend\
 For the gates to swing open\
-To accept me in again\
+To accept me whole in again\
 Pour me some whisky\
-Oh … won’t you be my friend\
+Won’t you be my friend\
 \
 Pour me some whisky\
 Soothe my aching body and soul\
 I’ve been walking the desert\
 Like a child that has no home\
-Now I’m coming, to your graveyard\
+Now I’m coming to your graveyard\
 For my final judgement call\
 Pour me some whisky\
 Before I’m dead and gone\
@@ -65,7 +65,7 @@ Pour me some whisky\
 \
 Pour me some whisky\
 I’ve been smiling for too long\
-Oh, I need that drink so bad\
+I need that drink so bad\
 To make me feel alone\
 Most days, loneliness \
 Suits me just fine\

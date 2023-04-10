@@ -8,14 +8,14 @@ I was deeply un-alerted \
 To what was going inside your mind \
 \
 All them thoughts were wondering \
-'bout who I was, and who you are \
+About who I was, and who you are \
 Like a herd of cows goes warnding \
 Looking for an opening, in the sky \
 \
 Then I heard the wind calling \
 And it wasn't calling your name \
 I saw the river flowing \
-Didn't take me to where I came (from) \
+Didn't take me to where I came \
 \
 The sun was rising \
 This time from the west \
@@ -29,7 +29,7 @@ From my voice, or from it all \
 \
 Yet I'm still rambling \
 Like them good old days \
-I clipping red light showing \
+I see the clipping red light showing \
 Is it a sign that you're not there \
 \
 Not thinking about tomorrow \

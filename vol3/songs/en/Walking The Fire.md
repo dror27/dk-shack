@@ -39,6 +39,9 @@ You thought you found gold\
 Head first, you dived in\
 Further down, straight into a hole\
 Choking on your collar, asking for some more
+\
+You tried walking the fire\
+Now dance around it
 
 ---
 - https://www.youtube.com/watch?v=woELjR5yjd8

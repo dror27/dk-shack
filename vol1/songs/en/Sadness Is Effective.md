@@ -123,14 +123,14 @@ On Main street, menus getting tired\
 Battered house of saints\
 Long knives, beaters and stakes\
 The prey is waiting, meek in garment\
-For it’s time, for the mistake\
+For its time, for the mistake\
 
 Still, the stillness bears no witness\
 In the sky\
 Fear of coming off as desperate\
 Is something to despise\
 \
-Sadness IS effective\
+Sadness is effective\
 If you give it a try\
 Happiness is petty cash\
 For those who can not cry

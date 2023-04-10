@@ -4,7 +4,7 @@ I'm drifting through the vastness of time\
 To days when you were mine\
 We're playing hide-and-seek beneath the vines\
 Your hair as smooth as wine\
-Your breast is as warm as summer fire\
+Your breath is as warm as summer fire\
 But your eyes they tell a lie\
 And I'm tumbling down the stairways of your mind\
 \
@@ -19,7 +19,7 @@ And I'm tumbling down the stairways of your mind\
 Now I'm overdosed by kindness\
 Of a girl that's never mine\
 Her body is a palace I serve\
-Her gate is where I lie\
+Her gates is where I lie\
 And when we're all alone, at night\
 She's walking on a wire\
 As she's tumbling down the stairways of her mind

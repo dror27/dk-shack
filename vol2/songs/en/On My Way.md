@@ -30,7 +30,7 @@ Close my eyes and pray\
 Babe, are you getting closer\
 Please be on your way\
 \
-Though this is just a song, Babe\
+Though this is just a song\
 I know it travels well\
 Like the AM stations of old\
 It’s bouncing off the air\

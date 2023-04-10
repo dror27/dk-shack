@@ -7,13 +7,14 @@ Far left behind\
 \
 But she’s so relentless\
 Glorious and kind\
-So I fell right back in to\
+So I fell right back into\
 Her darkest of mines\
 \
 Morning it’s time\
 To climb up a hill\
 For leaving her now\
 Breathless you’ll feel\
+\
 Old mining towns\
 They’re still testing your skills\
 Down at the pit\
@@ -29,9 +30,17 @@ Tucked to her door\
 Of bartending woman\
 Good-old Grandma Torr\
 \
-Morning it’s time ...\
+Morning it’s time\
+To climb up a hill\
+For leaving her now\
+Breathless you’ll feel\
 \
-Though she never stopped trying\
+Old mining towns\
+They’re still testing your skills\
+Down at the pit\
+Ancient souls dance and cheer\
+\
+She never stopped trying\
 To be artsy and fair\
 Those who were born here\
 Can pretty sure tell\
@@ -41,4 +50,16 @@ Of her long nights of snow\
 Of her beauty now hidden\
 In her maze down below\
 \
-Morning it’s time ...
+Morning it’s time\
+To climb up a hill\
+For leaving her now\
+Breathless you’ll feel\
+\
+Old mining towns\
+They’re still testing your skills\
+Down at the pit\
+Ancient souls dance and cheer
+
+---
+
+- https://soundcloud.com/drorkessler/old-mining-towns-n2-1

@@ -1,6 +1,6 @@
 # She’s So Keen
 
-She's got serpents running down her thigh\
+She's got serpents running down on her thigh\
 For you to chase like a beast\
 On your knees you will drop as you cry\
 While she continues to feast\
