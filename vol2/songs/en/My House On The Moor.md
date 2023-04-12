@@ -7,7 +7,7 @@ Ignorant of their end \
 \
 Wayside they fall, lovers and hopes \
 To a tale they once told \
-Now they’re merely spectators of sort \
+Now they’re merely spectators of sorts \
 \
 To a future so lucid \
 It’s a bet not to be missed \
