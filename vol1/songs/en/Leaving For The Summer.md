@@ -1,7 +1,7 @@
 # Leaving For The Summer
 
 I’m leaving for the summer\
-‘Think I’ll go and find me a place\
+Think I’ll go and find me a place\
 Where the trees are plenty\
 Where I can finally relate\
 \

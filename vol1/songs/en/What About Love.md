@@ -14,7 +14,7 @@ Much higher than a dove\
 \
 But what about the love?\
 Is it getting higher, softer\
-Louder, better,\
+Louder, better\
 Younger or richer?\
 Or is it getting older?\
 \
@@ -25,7 +25,7 @@ Warmth of bodies turns a-blunder\
 \
 But what about the love?\
 Is it getting higher, softer\
-Louder, better,\
+Louder, better\
 Younger or richer?\
 Or is it getting older?\
 \
@@ -36,7 +36,7 @@ By keeping tabs under the covers\
 \
 But what about the love?\
 Is it getting higher, softer\
-Louder, better,\
+Louder, better\
 Younger or richer?\
 Or is it getting older?
 

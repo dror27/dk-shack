@@ -35,6 +35,11 @@ Powder your nose\
 Ethereal justice\
 Is melting like snow \
 \
+Keep them high heels on\
+There’s no running away\
+Come ‘round the sofa\
+It’s Christmas today\
+\
 High morals and trumpets\
 Are blowing me off\
 But they’re not here, with us\

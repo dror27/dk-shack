@@ -4,7 +4,7 @@ Suddenly, you think you made a big mistake\
 Dancing all around the town\
 Telling everyone your life has just began\
 \
-And now,\
+And now\
 The shortness of your breath is just a sign of your new weight\
 And every passing day is a day filled with regrets\
 And living seems so awkward, now that he's away\
@@ -16,7 +16,7 @@ Threw you face-down on the bed\
 Cutting all the lights\
 To make you just a bit scared\
 \
-And now,\
+And now\
 The darkness truly seems like a lonely place to be\
 And every hand that grabs you seems like some conspiracy\
 You're face down on the bed, wearing naked misery\
@@ -27,7 +27,7 @@ With words like “Stupid”, “Liar” and “A Dirty Slut”\
 Chasing grace out of your life\
 Cutting little pieces of your tender heart\
 \
-And now,\
+And now\
 Your blood runs freely down the column of your spine\
 The love you had is gone, but darling you're still fine\
 And you might find it shocking, but you are still alive\

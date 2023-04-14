@@ -40,7 +40,7 @@ Better listen to your heart\
 It might be saying: better stop\
 \
 But your kisses are so sweet\
-And you told me that I'm somthing ...\
+And you told me that I'm somthing -\
 So confusing so I thought\
 There's something to be had here\
 Or not\

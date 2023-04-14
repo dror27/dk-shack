@@ -21,7 +21,7 @@ Ever since I let you go\
 Memories that come and go\
 \
 I can see\
-finding peace will take time, but not forever\
+Finding peace will take time, but not forever\
 If we can be\
 All alone and be quiet, together\
 \

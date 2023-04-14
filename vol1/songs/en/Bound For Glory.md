@@ -1,11 +1,11 @@
 # Bound For Glory
 
 Well, you made it in school\
-Play guitar, you’re so cool\
+Play the guitar, you’re so cool\
 Made a small fortune\
 Now step it up, make the news\
 \
-Be someone who cares,\
+Be someone who cares\
 About pollution, clean air\
 Be the new Messiah\
 At least for a day\
@@ -22,7 +22,7 @@ Of the whole wide world\
 \
 Free from bullies in school\
 From being awkwardly ruled\
-By religion, conflicted & cruel\
+By religion, conflicted and cruel\
 Do you take me for a fool?\
 \
 Hey mister, can’t you tell\

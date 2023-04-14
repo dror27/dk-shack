@@ -25,7 +25,7 @@ Still my body is ready for the next trick\
 I keep my eyes closed, not to be seen\
 Forget what you know about a little girl’s dreams\
 \
-We’ll kill them all, my girlfriend she says\
+We’ll kill them all, my girlfriend, she says\
 But she really means the dreams in your head\
 Get us a van, paint it in blue\
 Surf out the winter, just me and you\

@@ -1,4 +1,4 @@
-# Mouse Loves a Cat
+# Mouse Loves A Cat
 
 I loved you like a madman\
 Running through a fire\

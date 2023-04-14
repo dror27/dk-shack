@@ -32,8 +32,8 @@ Caught me empty handed, knocked my right off my feet\
 \
 Now your memory still echoes, in the halls of my retreat\
 You gave me the grand prize, a man must admit\
-And as deflecting is my art form, I gave you the royal treat\
-Sent you back to castle, forever not to speak
+But as deflecting is my art form, I gave you the royal treat\
+Sent you back to your castle, forever not to speak
 
 ---
 - https://youtu.be/ihrUPYAOXNQ

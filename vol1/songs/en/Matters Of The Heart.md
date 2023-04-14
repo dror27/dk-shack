@@ -43,7 +43,7 @@ I want it missionary plain\
 ‘Cause in matters of the heart\
 I’ve been having some false starts\
 So if I ask you for your hand\
-or where we’re headed\
+Or where we’re headed\
 \
 Simply touch me, all of the way\
 Don’t worry, I won’t stay\

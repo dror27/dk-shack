@@ -5,8 +5,8 @@ Sautéed shallots and rust belt trots\
 River floats, forks and wedding posts\
 Midnight talks and bobbing yachts\
 \
-Hazard mocks the punctual clocks\
-A midwife’s work, suspended to a halt\
+Hazard mocks punctual clocks\
+A midwife’s work, suspended a-halt\
 By a ghostly chalk, a figurine docked\
 To a mantelpiece poked, by an iron spoke\
 \
@@ -23,14 +23,14 @@ Joyous to most, to self a faux\
 An Eskimo elder, queening by rote\
 Perishes slowly, but leaves life not\
 A village in morn, wails as a mutt\
-Whilst in forest, erected stands a hut\
+Whilst in a forest, erected stands a hut\
 \
 Comes summer, ice to rivers succumb\
-Schools of fish to terms they come\
+Schools of fish to term they come\
 Ghostly figurines as tree-sticks form\
 Crystal visions, ‘round her hilltop dorm\
 \
-Slowly in rot or cheerful as storm\
+Slowly, in rot or cheerful as storm\
 Knowledge is short, on all things to come\
 For being alive or in catacombs\
 She, as is time, in secret takes form

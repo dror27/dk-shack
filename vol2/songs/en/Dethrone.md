@@ -24,7 +24,7 @@ Rig the machine\
 \
 Make her happy\
 Make her sad\
-She’s a-livin in a dream\
+She’s a-livin' in a dream\
 \
 Soon you be spreadeagled\
 On the floor\
@@ -34,10 +34,10 @@ For the bells to toll\
 MC hungry \
 For the mic\
 Countdown’s over\
-Tyson mike\
+Tyson Mike\
 \
 Surmon master\
-Reader of charts\
+Reader of the charts\
 Language juggler at the door\
 Let him in\
 It be tomorrow\
@@ -72,7 +72,7 @@ Tell the public\
 Make a scene\
 \
 Surmon master\
-Reader of charts\
+Reader of the charts\
 Language juggler at the door\
 Let him in\
 It be tomorrow\

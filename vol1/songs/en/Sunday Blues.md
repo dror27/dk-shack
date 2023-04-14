@@ -2,23 +2,23 @@
 
 I was born on a Sunday\
 Old man preacher, he called out my name\
-He said: “you might not be a believer\
-But one day you’re going to be a man”\
+He said: "you might not be a believer\
+But one day you’re going to be a man≈\
 \
 I got into my first fight on a Sunday\
 Took a man’s soul and dumped it to the ground\
 Daddy took me by the arm, saying:\
-“You better not be doing this while I’m around”\
+"You better not be doing this while I’m around”\
 \
 Daddy left us on a Sunday\
 The sky turned blue like a blindman’s eye\
 Mommy woke us early, saying:\
-“We’re gonna go to church and you’re gonna smile”\
+"We’re gonna go to church and you’re gonna smile”\
 \
 I made love to my first girl on a Sunday\
 Man, it felt so good I almost cried\
 Her brother got out the shotgun, saying: \
-“You’re gonna marry this girl or you gonna die”\
+"You’re gonna marry this girl or you gonna die”\
 \
 My first boy was born on a Sunday\
 Kissed his cheek and left that very same day\

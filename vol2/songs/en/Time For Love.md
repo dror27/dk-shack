@@ -20,7 +20,7 @@ My love\
 So many thoughts I had, but now they're gone\
 Amost two years here, I've been on my own\
 There're nothing to eat\
-The house is a mess,\
+The house is a mess\
 Smells like a pit\
 \
 And now it's time, time for love\

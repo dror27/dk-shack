@@ -12,7 +12,7 @@ Then you decided to be rich\
 Found a story you could pitch\
 To a room full of grumpy old men\
 And some ladies dressed in pink\
-When everybody smiled\
+When everyone smiled\
 You knew it’s time to run and hide\
 ‘Cause it’s just another silly pie in the sky\
 \

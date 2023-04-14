@@ -40,22 +40,22 @@ I got feelings too, you know\
 So I’m gonna get collecting\
 On all them favors that I’m owed\
 \
-“The journey’s never ending\
+"The journey’s never ending\
 No escape from work and toil\
 Be prepared for bending\
 ‘Cause in their minds you’re just a toy”\
 \
 Voices I’ve been hearing\
 Ever since I was a boy\
-“Always walk a straight line\
-Do exactly as you’re told”\
+"Always walk a straight line\
+Do exactly as you’re told"\
 \
-“Always mind the weather\
-Stir your boat back into shore\
+"Mind the weather\
+Stir your boat back onto shore\
 The love you’ll find in Jesus\
-Is the one you’re looking for”\
+Is the one you’re looking for"\
 \
-Well, we’re way past final judgement\
+Way past final judgement\
 Mortal sins now to explore\
 So I’d better start collecting\
 On all them favors that I’m owed

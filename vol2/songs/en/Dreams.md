@@ -23,7 +23,7 @@ Can a guy even dream about a woman who sins\
 Without loosing the girl, the girl of his dreams\
 Can a guy even dream?\
 \
-Keep your dreams between the lines boy\
+Keep your dreams between the lines, boy\
 Keep your chord changes clean\
 Harmonize with the truth\
 Keep them guessing until\

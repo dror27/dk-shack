@@ -12,7 +12,7 @@ Stash away them kids\
 We’ll be hitting the bed soon\
 Counting rockets for sheep\
 \
-And all the while,\
+And all the while\
 Heaven’s a folk-dancing ballroom in swing\
 Missiles are kissing, what a thing!\
 Our bed has thrown in the towel, you win\
@@ -29,7 +29,7 @@ Deck our passports flush\
 We’ll travel to foreign lands\
 Buy rainbow sheets, make them blush\
 \
-And all the while,\
+And all the while\
 Heaven’s a folk-dancing ballroom in swing\
 Missiles are kissing, what a thing!\
 Our bed has thrown in the towel, you win\
@@ -41,7 +41,7 @@ Its peaceful as spring, except for some fish\
 Bag some grapes, an apple, a peach\
 The bathroom’s deserted, will you be my dish?\
 \
-And all the while,\
+And all the while\
 Heaven’s a folk-dancing ballroom in swing\
 Missiles are kissing, what a thing!\
 Our bed has thrown in the towel, you win\

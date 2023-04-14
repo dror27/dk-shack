@@ -25,14 +25,13 @@ As he comes in her hand\
 \
 As if you're hooked on a chain\
 For him to rattle for gain \
-\
 Again\
 \
 You've been running in the streets\
 You've been searching for pain\
 Scratching your head\
 Oh, are you Abel or Cain \
-Your story been told, \
+Your story's been told \
 You've been bought and sold\
 \
 And time again\
@@ -46,7 +45,6 @@ As he comes in your hand\
 \
 As if you're hooked on a chain\
 For them to rattle for gain\
-\
 Again\
 \
 Aren't we all\
@@ -62,7 +60,6 @@ As if we're hooked on a chain\
 For us to rattle profane\
 Sink down as bottoms, un-shamed\
 Rise as tops, just like cranes\
-\
 Again\
 \
 And time again\
@@ -76,7 +73,6 @@ As he comes in her hand\
 \
 As if you're hooked on a chain\
 For them to rattle for gain\
-\
 Again
 
 ---

@@ -19,7 +19,7 @@ There's just so much to protest\
 We plan, we manage, then we wait\
 Prepare, stay safe and awake\
 But how about venturing afar\
-Stumbling for days, starting the car?\
+Stumbling for days, starting a car?\
 \
 Surely it's possible, but is it welcomed still?\
 Our ever adaptive spirit, now trained\
@@ -57,7 +57,7 @@ My mind is blowing\
 Otherwise I would be calling\
 Free of care I will be rolling\
 But now I'm just scrolling\
-Through a screen that's full of moaning\
+Through a screen that's full of moanings\
 While countless bands are falling\
 We'll still be here comes morning\
 \

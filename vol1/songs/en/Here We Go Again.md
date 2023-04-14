@@ -43,13 +43,7 @@ Still memories are coming through\
 Of forest hikes and eyes of blue\
 Yes, memories are coming strong\
 Of secret hideouts, letters torn\
-‘Guess, it’s true - something in me still loves you\
-\
-Here we go again, pretending we’re just friends\
-Here we go again,telling there’s no end\
-\
-But the time, it keeps on rolling by\
-And your mind, it keeps on wanting love
+‘Guess, it’s true - something in me still loves you
 
 ---
 - https://soundcloud.com/drorkessler/here-we-go-again-busy-demo

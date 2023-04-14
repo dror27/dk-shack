@@ -3,7 +3,7 @@
 George opened his eyes, saying: what is this place?\
 Have I fallen dead, or is this outer space?\
 People around here are talking about peace\
-“Revolution’s over”, or something like this\
+"Revolution’s over", or something like this\
 \
 If something is wrong, fix it up in a song\
 \
@@ -33,7 +33,7 @@ If something is wrong, fix it up in a song\
 \
 Well, Georgie’s quite like you, at times he is dim\
 But lately it’s been boring, being part of the scheme\
-He thrown out the rule book, got nothing to hide\
+He's thrown out the rule book, got nothing to hide\
 A unique individual, still fighting the tide\
 \
 He’s doing the folk clubs, finger in ear\

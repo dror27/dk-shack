@@ -10,7 +10,7 @@ Things were looking up\
 \
 Then COVID hit, customer traffic slowed\
 John went on furlough, while Steve and Anne\
-Kept the store open to serve community cyclists\
+Kept the store open to serve cyclists\
 \
 When Steve’s back pain returned\
 John stepped to work again\
@@ -19,7 +19,7 @@ Money was tight so John stayed on furlough\
 Doing a good deed for his dad\
 Being a good fellow\
 \
-Unbeknownst to him,\
+Unbeknownst to him\
 John was committing\
 A serious criminal offence\
 So I’m told\
@@ -33,7 +33,7 @@ What is a Furlough Fraud after all?\
 \
 Well, furlough fraud occurs when an employer\
 Deliberately claims back wages\
-under the job retention scheme\
+Under the job retention scheme\
 \
 For an employee they know\
 Is carrying out work for them\
@@ -52,8 +52,8 @@ Not to mention holding all or part of their pay\
 Or simply\
 As Patrick Cannon, Barrister at law, writes:\
 \
-“Employees on furlough cannot do any work\
-for their employer” day or night\
+"Employees on furlough cannot do any work\
+For their employer" day or night\
 \
 Still, unbeknownst to him\
 John was committing\

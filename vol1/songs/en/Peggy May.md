@@ -14,18 +14,18 @@ And here you are, back at the door\
 \
 Collecting favors from your folks\
 There’s really nothing left for talk\
-“Just give me cash, and I’ll be out\
-The neighbors watching, I’ll won’t shout”\
+"Just give me cash, and I’ll be out\
+The neighbors watching, I’ll won’t shout"\
 \
 With cash, your conscious seems so clear\
-losing all sense of pain and fear\
+Losing all sense of pain and fear\
 You choose your victim so swiftly\
-“Come-on mister, wanna bite me?”\
+"Come-on mister, wanna bite me?"\
 \
 Collecting favors from your folks\
 There’s really nothing left for talk\
-“Just give me cash, and I’ll be out\
-The neighbors watching, I’ll won’t shout”\
+"Just give me cash, and I’ll be out\
+The neighbors watching, I’ll won’t shout"\
 \
 But when they sweep the streets clean\
 With their big white cleansing machines\
@@ -46,7 +46,7 @@ For your mind to be nursed\
 \
 Still you’re collecting favors from your folks\
 There’s really nothing left for talk\
-“Just give me cash, and I’ll be out\
+"Just give me cash, and I’ll be out\
 The neighbors watching, I’ll won’t shout"
 
 ---

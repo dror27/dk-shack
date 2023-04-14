@@ -44,7 +44,7 @@ The ruler of this plot\
 You people are my flock\
 You’ll kiss me until you choke”\
 \
-But that’s a joke\
+But that’s just a joke\
 \
 That’s where the story takes a turn\
 Not to the left nor to the right\

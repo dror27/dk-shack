@@ -7,9 +7,9 @@ But I can’t bring them home \
 Still, I got a brand new song \
 So I guess there ain’t nothing wrong \
 \
-I got 2 million people under occupation \
+I got two million people under occupation \
 But I can’t hire so much as a chef \
-I got 4 police investigation on my name \
+I got four police investigation on my name \
 So I can’t brag about my wealth \
 Still, I got a brand new song \
 Ain’t that something else? \
@@ -24,7 +24,7 @@ A rolling bottle down a theatre wrought \
 Something so loaded, with honesty froth \
 That's why it's shunned by normal folks\
 \
-I’ll got three balls, \
+I’ll got three balls \
 Well now you know that too \
 And a seafaring maiden in every port \
 And a jet fighter too \

@@ -2,7 +2,7 @@
 
 Rays of sunshine trying hard to put a face\
 Stormy clouds are holding tears close to the chest\
-The wind howling muted, dark, without a sound\
+The wind's howling muted, dark, without a sound\
 We’re messing around\
 \
 Peeling clothes in secret places no one knows\
@@ -31,7 +31,7 @@ And now you’re singing\
 Hymns and praises of another man\
 Who’s done you wrong\
 \
-Was it something that I said? ...
+Was it something that I said?
 
 ---
 - https://youtu.be/3Q829EAFxdA

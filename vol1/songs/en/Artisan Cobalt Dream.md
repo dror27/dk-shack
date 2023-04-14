@@ -35,7 +35,7 @@ For an audience of a thousand cheers\
 All neatly dressed and Ion rich\
 Their bellies full of sprouts and beer\
 \
-“Supply control, humane approach”\
+"Supply control, humane approach"\
 Is the slogan that they will reveal\
 While gazing blankly at the men\
 Seas and borders attempting still\

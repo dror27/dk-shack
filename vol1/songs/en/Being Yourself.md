@@ -29,7 +29,7 @@ So basic your failure to stand, on your own\
 \
 To learn how to walk with no shoes without whining\
 To stand in the wind with no coat and be smiling\
-To feel young and whole, for simply, being yourself\
+To feel young and whole, for simply being yourself\
 \
 Warm voices are calling your home\
 Your dad keeps on dialing, so pick up the phone\
@@ -40,7 +40,7 @@ To wipe out the deeds with a blow, you conceive\
 Still your fear keeps you locked up and chilled, all alone\
 \
 Maybe one day you'll wake up in a storm\
-Your baby’s crying, your wife is not at home\
+Your baby crying, your wife not at home\
 Your bare feet stepping on a wooden floor\
 Will spell you forgiveness to your very own\
 \

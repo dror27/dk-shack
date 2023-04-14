@@ -2,13 +2,13 @@
 
 From a window of a kitchen\
 I keep a lookout for surprise\
-On the faces of the neighbors\
-when we’re walking naked by\
+On the faces of our neighbors\
+When we’re walking naked by\
 \
 But expressions they’re expensive \
 In this dirty part of town\
 Even Jesus and his saviors\
-Would be hard pressed for a frown\
+Would be hard-pressed for a frown\
 \
 Guess I’m back to cooking\
 In my old lonesome ways\
@@ -36,7 +36,7 @@ Though my glass is never empty\
 It’s ‘cause I’m drinking like a fool\
 \
 Who can only write when cooking\
-who’s enchanted with the blues\
+Who’s enchanted with the blues\
 Always looking for a stranger\
 Instead of spending time with you\
 \
@@ -68,12 +68,7 @@ Know my heart’s already gone\
 So come crying, come sorrow\
 Come time for doing wrong\
 I’m a dirtbag for your lovin'\
-But I’ve got to let you go\
-\
-So I’ll wrap this song for no one\
-But my future self and me\
-Put my silent brand new earphones\
-And enjoy this here last meal
+But I’ve got to let you go
 
 ---
 - https://soundcloud.com/drorkessler/dirtbag-for-your-lovin

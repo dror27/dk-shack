@@ -1,6 +1,6 @@
 # Alpha Mike Foxtrot
 
-My home town is the kind of a place\
+My hometown is the kind of a place\
 Where everyone was once someone else, the best\
 A general with a water gun\
 A pilot who’s destined to destroy Iran, what fun!\
@@ -35,7 +35,7 @@ By a network of such glorious stations\
 With talking heads that sing on command\
 Roar as you may, we can’t hear a sound\
 \
-The past is gone, present perfect it is, \
+The past is gone, present perfect it is \
 With our newly appointed constellation of queers\
 Just be a sport, come join us down at the bar\
 On the corner of something stupid and our trash-talking czar\
@@ -55,7 +55,7 @@ In your circuit, I’m “the great bore”\
 Just a chip off the old block\
 Alpha Mike Foxtrot \
 \
-“So much hate this guy has\
+"So much hate this guy has\
 Wish we could have trained him instead\
 To dress in whites, to accept\
 Divinity, order, leaders inept\
@@ -63,7 +63,7 @@ Divinity, order, leaders inept\
 Weep for him no more\
 He’s just driftwood, swept onto our shore\
 It’s anthem time now, bow your head \
-Kiss the floor, sing this instead:”\
+Kiss the floor, sing this instead:"\
 \
 The quick brown fox jumps over the lazy dog
 

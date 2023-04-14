@@ -1,7 +1,7 @@
 # Congratulations
 
 I’m sleeping outside\
-I’ve got nowhere else to go\
+I got nowhere else to go\
 I’m cutting out the ties\
 Burning bridges, slamming doors\
 The future looks certain\

@@ -7,11 +7,11 @@ I'll be kind\
 \
 I'll spare you all the courtesy\
 The higher praise, the sublime\
-And when your scream your anger out\
-I'll tell you: "you'll be fine"\
+And when you scream your anger out\
+I'll tell you: you'll be fine\
 \
 I'm leaving you for a while\
-When you'll wake up you'll be fine\
+When you wake up you'll be fine\
 Some things are better left behind\
 Just let your body be your mind\
 \
@@ -26,7 +26,7 @@ Then morning creeps in through the shades\
 Some cars are passing by\
 \
 I'm leaving you for a while\
-When you'll wake up you'll be fine\
+When you wake up you'll be fine\
 Some things are better left behind\
 Just let your body be your mind
 

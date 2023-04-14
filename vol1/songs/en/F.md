@@ -12,7 +12,7 @@ Can’t seem to rise above\
 Depression and decay\
 Is this the only way\
 To wait it out until it’s gone\
-holding day by day?\
+Holding day by day?\
 \
 Forget, Forgive\
 Fall in love and Fault no one\

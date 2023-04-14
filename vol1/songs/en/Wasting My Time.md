@@ -6,7 +6,7 @@ Seeking some real answers\
 I've flown into your eyes\
 \
 And suddenly I'm dizzy\
-Wasted,\
+Wasted\
 Out of time\
 \
 No more seeking answers\

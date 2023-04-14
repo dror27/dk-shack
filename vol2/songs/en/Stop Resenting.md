@@ -3,7 +3,7 @@
 (lyrics: Scott Pilgrim - Launchpad McQuack)\
 \
 I can't be sure\
-but I think I heard you crawl through the door\
+But I think I heard you crawl through the door\
 You didn't say a word\
 And I think you tried to go to bed but instead you went to the floor\
 \

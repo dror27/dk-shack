@@ -44,7 +44,7 @@ To crack you smile, to get you wanting me\
 Don’t tell me I’m soft\
 Or I might love you\
 \
-… tell me I’m soft\
+Tell me I’m soft\
 I think I … I already love you\
 \
 Don’t tell me I’m old\
@@ -63,7 +63,7 @@ There’ve been many times I went along\
 Now I don’t want to\
 \
 You can do whatever you want\
-I’m simply here, take what want\
+I’m simply here, take what you want\
 Don’t tell me to write this song\
 ‘Cause I might just do that too
 

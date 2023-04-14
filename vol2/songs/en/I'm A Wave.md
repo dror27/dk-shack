@@ -2,7 +2,7 @@
 
 Making myself heavy \
 Just to float back up again \
-Like zeppelin in heaven\
+Like a Zeppelin in heaven\
 Misspelling my own name\
 \
 Released back to the sky\

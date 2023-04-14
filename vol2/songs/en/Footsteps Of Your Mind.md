@@ -17,11 +17,11 @@ Of adulation, from kings of spades\
 \
 They enter slowly, fixing their gaze\
 Sinking fingers into her maze\
-“She's quite perplexing”, one of them says\
+"She's quite perplexing", one of them says\
 As he chafes his collar, he’s out of phase\
 \
 'Cause she's got no recall\
-Know nothing at all\
+Knows nothing at all\
 You're about to fall\
 Here comes the call\
 \
