@@ -20,7 +20,7 @@ As one big hoax\
 And there's nothing you can do\
 What I’m saying is true\
 Because ...\
-I loved you like a flower that was almost fully grown\
+I loved you like a flower that was fully grown\
 Now summer has burned it\
 And my love is gone\
 \
@@ -33,18 +33,18 @@ To my wedding girl\
 Well, If love was a pigeon\
 I'm sure you'd send her a pair\
 \
-But there ain’t nothing you can do\
+But there's nothing you can do\
 What I’m saying is true\
 Because ...\
 You loved me like a catalog loves the pages it holds\
 Never thinking that one day, I might actually be sold\
 \
-Well, I’ll be thinking of you probably every day\
+I’ll be thinking of you probably every day\
 Or at least once a season, when my mind’s astray\
 When the wind picks the trash, that’s when I get weak\
 If you’re feeling the same, please do not speak\
 \
-‘Cause there ain’t nothing we can do\
+‘Cause there's nothing we can do\
 What I’m saying is god’s honest truth\
 Our love was like the love between a mouse and a cat\
 But a cat, it loves no one, for it’s just a cat

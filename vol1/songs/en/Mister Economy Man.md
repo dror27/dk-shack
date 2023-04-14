@@ -15,7 +15,7 @@ Come close, let me give you a hand\
 Help you better understand\
 The shallow land on which you stand\
 \
-You sit here telling me about all of your might\
+You sit here telling me about all your might\
 How every man should be as bright\
 How every woman should never lose sight\
 Of her potential to solve all plight\

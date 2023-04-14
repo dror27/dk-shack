@@ -20,7 +20,7 @@ Slack away, sliding through time\
 Sometimes it feels wrong\
 Like a chord that's out of place\
 In a perfect song\
-Will drop you off the race\
+It will drop you off the race\
 \
 But we're playing the blues\
 The rhythm of the soul, the punk\

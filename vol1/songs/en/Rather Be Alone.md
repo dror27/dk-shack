@@ -1,7 +1,7 @@
 # Rather Be Alone
 
 I can be your lover, that’s true\
-We could have two beautiful kids, just me and you\
+We'd have two beautiful kids, just me and you\
 Sail across the seven seas, not a day feeling blue\
 Yes, I can be your lover, that’s true
 \

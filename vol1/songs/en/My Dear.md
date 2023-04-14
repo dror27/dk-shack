@@ -7,7 +7,7 @@ I try so hard, but I can't escape\
 It's been six years since my girl left me\
 \
 It's been six months since I first saw your face\
-I wonder why I think we're in the race\
+I wonder why I think we're in a race\
 I work so hard trying to fix myself\
 I try so hard, but I can't escape\
 It's been six months since I first saw your face\

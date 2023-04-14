@@ -22,12 +22,12 @@ This time from the west \
 I was petrifying \
 To the whole world, and to you, my best \
 \
-Here are alone in the desert \
+Here we are alone in the desert \
 And I got me about two chords \
 The third one seems to be missing, or is it present \
 From my voice, or from it all \
 \
-Yet I'm still rambling \
+Yet, I'm still rambling \
 Like them good old days \
 I see the clipping red light showing \
 Is it a sign that you're not there \

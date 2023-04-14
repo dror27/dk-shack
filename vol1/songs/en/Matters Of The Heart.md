@@ -35,7 +35,7 @@ Touch someone, you’re good as death\
 Everything you’ve ever known\
 Will be taken, forever gone\
 \
-Yes, I’ve touched and I've survived\
+Yes, I touched and I've survived\
 Lost it all and I’m alive\
 No more a junky for the pain\
 I want it missionary plain\

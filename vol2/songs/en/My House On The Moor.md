@@ -26,7 +26,7 @@ To the next pub in town \
 Where I'm bound to be found \
 With a smile and a song\
 \
-So as I exit the room \
+As I exit the room \
 Where the stage has been set \
 For a play of lifelong promises \
 Some call it success \

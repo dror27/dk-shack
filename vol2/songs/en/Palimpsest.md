@@ -13,7 +13,7 @@ Rose time and again, shrouds-fed my roots\
 For not surface-bound was this our encounter\
 Unterwelt its natural harbor\
 But to set it a-sailing onto horizons\
-It needs be floating, free as a lion\
+It needs be floating, free as a bison\
 \
 More than a sense\
 Of purpose and plan\

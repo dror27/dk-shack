@@ -35,7 +35,7 @@ They’re still talking about the war\
 Somehow she’s smiling\
 Her eyes still nailed to the floor\
 You’ve been gentle and pleasing\
-But she's need of something more\
+But she's in need of something more\
 \
 There’s something missing\
 Even though we’re making out\

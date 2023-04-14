@@ -12,8 +12,8 @@ For laying silent by your side\
 \
 Faults of man akin\
 To jet line drawings ‘cross the sky\
-Women nurture, but a king\
-Feeds on crumbs, a-free of pies \
+Woman nurtures, but a king\
+Feeds on crumbs, free of pies \
 \
 Seven are the sins of love\
 Count them up, don’t ask why\

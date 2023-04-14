@@ -29,7 +29,7 @@ Won’t you be my friend\
 \
 Pour me some whisky\
 Soothe my aching body and soul\
-I’ve been walking the desert\
+I’ve been walking the in desert\
 Like a child that has no home\
 Now I’m coming to your graveyard\
 For my final judgement call\
