@@ -21,7 +21,7 @@ Sit down - plant your feet right back on the ground \
 Sit down - plant your feet back right on the ground \
 Pretty soon you won't hear a sound \
 \
-Not the sound of the night falling \
+Not the sound of the night, as fallen \
 Not the way that you thought you were going \
 Not the way things turned out \
 Well .. isn't it what it's all about? \

@@ -13,7 +13,7 @@ Says: “Lest old memories be old”\
 Down at the homestead\
 The fire’s gone, but there’s no rush\
 She’s in her early fifties\
-The house’s empty, dark & plush\
+The house is empty, dark and plush\
 \
 The Rolls is waiting\
 It drives itself for all she knows\
@@ -76,7 +76,7 @@ For those who can not cry”\
 \
 But through the darkness of his eyes\
 He’s shouting out in vain\
-The way he feels is whole & pleasant\
+The way he feels is whole and pleasant\
 But really not the same\
 \
 Howling out madly, he’s been\

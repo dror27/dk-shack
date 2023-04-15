@@ -23,7 +23,7 @@ You're face down on the bed, wearing naked misery\
 While you're mind's all covered up, so you can't see\
 \
 How he beat you every night\
-With words like “Stupid”, “Liar” and “A Dirty Slut”\
+With words like “Stupid”, “Liar” and “Dirty Slut”\
 Chasing grace out of your life\
 Cutting little pieces of your tender heart\
 \

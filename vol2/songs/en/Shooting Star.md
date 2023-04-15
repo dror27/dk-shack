@@ -4,6 +4,7 @@ Don’t bet your life\
 On a shooting star\
 A wishing well\
 Just goes so far\
+\
 A shameless plug\
 Can’t stop the tide\
 Tomorrow’s dream\

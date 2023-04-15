@@ -16,7 +16,7 @@ Until he heard her calling\
 He stopped and turned\
 \
 Then we were laughing\
-About the times that we had\
+About the times we had\
 Then we were singing\
 The very song we just heard\
 \
@@ -28,6 +28,7 @@ He stopped and turned\
 I will recall the years\
 The laughter and the tears\
 They’re coming back\
+\
 I will recall the years\
 The marriage and the kids\
 Until I’m dead

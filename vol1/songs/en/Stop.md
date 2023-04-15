@@ -7,7 +7,7 @@ Now you got no one to blame\
 You're feeling the pain, again\
 \
 You're fighting it back\
-You are trying in vain\
+You're trying in vain\
 Reinventing yourself and again\
 You're back where you belong\
 Just feeling alone\

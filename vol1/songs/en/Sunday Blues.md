@@ -3,7 +3,7 @@
 I was born on a Sunday\
 Old man preacher, he called out my name\
 He said: "you might not be a believer\
-But one day you’re going to be a man≈\
+But one day you’re going to be a man"\
 \
 I got into my first fight on a Sunday\
 Took a man’s soul and dumped it to the ground\
@@ -12,7 +12,7 @@ Daddy took me by the arm, saying:\
 \
 Daddy left us on a Sunday\
 The sky turned blue like a blindman’s eye\
-Mommy woke us early, saying:\
+Mom woke us early, saying:\
 "We’re gonna go to church and you’re gonna smile”\
 \
 I made love to my first girl on a Sunday\
