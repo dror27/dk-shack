@@ -1,5 +1,7 @@
 # No Matter
 
+(stream of consciousness) \
+\
 I wake up in the morning\
 Cleanup, situps, pushups\
 Getting my body ready\

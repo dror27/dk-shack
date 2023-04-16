@@ -27,10 +27,10 @@ And now it's time, time for love\
 Time for pulling out the stops\
 For flying high as doves\
 \
-I got the car waiting warm in the garage\
+I got the car waiting, warm in the garage\
 I got you hanging by my side\
 Ain't that enough?\
-People say I'm a lone\
+People say I'm alone\
 Guess I'm coming back\
 On my own\
 \

@@ -37,7 +37,7 @@ Fear of God - out the ring\
 Still, my neighbor reads, Psalms and hymns\
 \
 How about we head down the beach\
-Its peaceful as spring, except for some fish\
+It's peaceful as spring, except for some fish\
 Bag some grapes, an apple, a peach\
 The bathroom’s deserted, will you be my dish?\
 \

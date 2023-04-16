@@ -1,5 +1,7 @@
 # Walking The Fire
 
+(first couplets repeat)\
+\
 You tried walking the fire\
 Now dance around it\
 Wait until it all turns into coals\
@@ -41,7 +43,9 @@ Further down, straight into a hole\
 Choking on your collar, asking for some more
 \
 You tried walking the fire\
-Now dance around it
+Now dance around it\
+Wait until it all turns into coals\
+Use it up to warm yourself, body and soul
 
 ---
 - https://www.youtube.com/watch?v=woELjR5yjd8

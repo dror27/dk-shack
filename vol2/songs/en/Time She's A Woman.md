@@ -1,7 +1,7 @@
 # Time She's A Woman
 
 She enters the hallway\
-Alone in her silver\
+Alone in her silver-\
 Yellow shining dress\
 Her threshold conceals\
 \
@@ -67,7 +67,7 @@ Keeping me thin\
 The Chesapeake river\
 It flows to the ocean\
 Unnamed the fish\
-Who bed on its stream\
+Who bed in its stream\
 \
 Unknown my love\
 Her name but a token\

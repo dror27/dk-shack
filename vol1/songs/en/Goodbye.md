@@ -1,5 +1,7 @@
 # Goodbye
 
+(stream of consciousness) \
+\
 I’ve been called unlucky\
 I’ve been called a fool\
 I’ve been called lonesome\

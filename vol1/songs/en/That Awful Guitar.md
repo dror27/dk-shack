@@ -43,7 +43,7 @@ Take your fancy guitar and shove it down the drain\
 Mine buzzes like a chainsaw, but I like it just the same\
 Spend a few more bucks, and get some deep sustain\
 But you can take your fancy guitar and shove it down the drain\
-‘Cause I like my buzzing guitar just the same
+‘Cause I like my buzzing guitar, just the same
 
 ---
 - https://soundcloud.com/drorkessler/nov-16-dror-2

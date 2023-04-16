@@ -27,7 +27,7 @@ When she’s roaming seas and peaks? \
 Or is she forgetful as a bird, will she ever speak? \
 Does she think of you \
 When in bed, before she sleeps \
-Or is she over and out, will she ever speak of you?\
+Or is she over and out, will she ever speak, of you?\
 \
 So you practice dignity \
 As your heart keeps on shrinking \
@@ -45,7 +45,7 @@ When she’s roaming seas and peaks? \
 Or is she forgetful as a bird, will she ever speak? \
 Does she think of you \
 When in bed, before she sleeps \
-Or is she over and out, will she ever speak of you?
+Or is she over and out, will she ever speak, of you?
 
 ---
 - https://youtu.be/F5x0OYlZ9Hg?t=295

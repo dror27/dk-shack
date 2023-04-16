@@ -4,7 +4,7 @@ The old are getting older\
 Young ones getting younger\
 The bold are getting bolder\
 The soft are getting softer\
-Like cotton balls in Q-Tip holders\
+Like cotton balls on Q-Tip holders\
 \
 The rich are getting richer\
 The punched are getting punchier\
@@ -18,7 +18,7 @@ Louder, better\
 Younger or richer?\
 Or is it getting older?\
 \
-When a love becomes a lover\
+When love becomes a lover\
 Who gently taps you on the shoulder\
 Then cold lips turn to another\
 Warmth of bodies turns a-blunder\

@@ -1,5 +1,7 @@
 # Wasting My Time
 
+(stream of consciousness) \
+\
 So I became an expert\
 At wasting all my time\
 Seeking some real answers\

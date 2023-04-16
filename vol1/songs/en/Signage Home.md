@@ -1,5 +1,7 @@
 # Signage Home
 
+(stream of consciousness) \
+\
 There’s no sign to explain\
 To tell us where to turn\
 There’s no price tag on the loss\
