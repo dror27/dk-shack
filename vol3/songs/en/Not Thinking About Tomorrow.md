@@ -9,7 +9,7 @@ To what was going inside your mind \
 \
 All them thoughts were wondering \
 About who I was, and who you are \
-Like a herd of cows goes warnding \
+Like a herd of cows we go warnding \
 Looking for an opening, in the sky \
 \
 Then I heard the wind calling \

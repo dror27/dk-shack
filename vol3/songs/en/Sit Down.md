@@ -38,8 +38,8 @@ No one to say: why ... you messed around \
 No one to say: why .... you never took that job \
 No one to say that you could have been hot \
 Now you're talking man ... no doubt \
-No one to say that you flirt and flaunt 
- 
+No one to say that you flirt and flaunt
+
 ---
 
 - https://soundcloud.com/drorkessler/sit-down

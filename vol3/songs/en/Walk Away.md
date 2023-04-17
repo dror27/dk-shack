@@ -2,7 +2,7 @@
 
 Quietly you go astray\
 Sneaking through the alleyways\
-Nevermind the price\
+Never mind the price\
 You’ve always paid\
 \
 Surely you would find a way\
