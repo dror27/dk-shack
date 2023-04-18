@@ -1,4 +1,4 @@
-# Not Thining About Tomorrow
+# Not Thinking About Tomorrow
 
 (stream of consciousness) \
 \
