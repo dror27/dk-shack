@@ -14,7 +14,7 @@ Hey mister, can’t you tell\
 There ain’t no heaven, no hell\
 Hey mister, can’t you see\
 I was bound for glory, but now I’m free\
-
+\
 Free from my brothers in arms\
 From whatever I should have become\
 Free from being the President\
