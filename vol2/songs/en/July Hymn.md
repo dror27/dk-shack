@@ -62,3 +62,7 @@ While countless bands are falling\
 We'll still be here comes morning\
 \
 So much to protest
+
+---
+
+- https://soundcloud.com/drorkessler/july-hymn-writing-session
