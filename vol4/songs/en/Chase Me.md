@@ -9,15 +9,11 @@ Catch me, I’m home again\
 Well, if it rains forever\
 We’ll just have to stay here together\
 Never mind the flights, the car\
-We’ll call it a disaster natural\ 
+We’ll call it a disaster natural\
 Leave it all behind, afar,\
 A perfect escape, so far, cause ...\
 \
-We’re caught in a storm\
-Kids left on their own\
-Folks have long been gone\
-We’re caught in a storm\
-Chase me, I’m home again\
+We’re caught in a storm ...\
 \
 Here I am again\
 Repeating myself again\
