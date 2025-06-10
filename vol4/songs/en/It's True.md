@@ -2,7 +2,7 @@
 
 Sometimes I get tired, from reading all the news\
 Rushing through my brain, oh, things I ought to do\
-Sometimes I get weary, thinking about love
+Sometimes I get weary, thinking about love\
 The jungle in my brain, when I'm feeling proud\
 \
 Sometimes I wish, to simply be\
