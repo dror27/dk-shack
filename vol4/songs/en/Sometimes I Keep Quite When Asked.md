@@ -13,7 +13,14 @@ Soon I will go out, walk the path\
 Meet some people on the street\
 They've been asking where you've been\
 I'll just tell them\
-I'll just tell them
+I'll just tell them\
+\
+Yes, It's another wonderful day here in the Alps\
+Soon I will go out, twist and shout\
+Meet some people on the town\
+They've been asking why you're gone\
+I'll just tell them\
+I'll just tell them\
 
 ---
 - https://www.youtube.com/watch?v=mcZ3t2HOP-w
