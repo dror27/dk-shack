@@ -5,8 +5,8 @@ Won't be your baby no more\
 Things are moving fast here\
 Better not wait for me too long\
 \
-Won't be rocking your cradle\
-Won't be rocking your cradle no more\
+Won't rock your cradle\
+I won't be rocking your cradle no more\
 Play time's over kiddo\
 Gotta' run and pay them tolls\
 \
