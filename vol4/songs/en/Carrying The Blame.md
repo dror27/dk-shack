@@ -47,3 +47,7 @@ Somewhere out of sight, someplace real far\
 Breathing heavy, under a new name\
 I guess it got too heavy\
 Carrying the blame
+
+---
+- https://soundcloud.com/drorkessler/carryin-the-blame
+- https://soundcloud.com/drorkessler/carrying-the-blame-deep-dive
