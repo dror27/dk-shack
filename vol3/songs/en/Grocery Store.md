@@ -18,7 +18,7 @@ Cached round midnight I lay flush\
 \
 Energy is mass, that funny man said\
 I concur. And as such it fades\
-All but a single bulge I keep
+All but a single bulge I keep\
 For drawing when the climbing's steep\
 \
 Philosophical antithetical, on a whim\
