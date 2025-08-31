@@ -20,7 +20,7 @@ Soon I will go out, twist and shout\
 Meet some people on the town\
 They've been asking why you're gone\
 I'll just tell them\
-I'll just tell them\
+I'll just tell them
 
 ---
 - https://www.youtube.com/watch?v=mcZ3t2HOP-w
