@@ -16,7 +16,7 @@ I guess it got too heavy\
 Carrying the blame\
 \
 We pitched a tent, said our goodbyes\
-Folk came from out of town\
+Folks came from out of town\
 Mom, she cried for a whole straight hour\
 Then got up and said it’s time\
 To live it up, to be free\
