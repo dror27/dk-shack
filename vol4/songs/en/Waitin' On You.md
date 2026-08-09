@@ -9,7 +9,7 @@ If I still got a hold\
 But I'm just strumming along\
 Trying to write the very best song, for you\
 And I'm dreaming all night long\
-About all them different things we can do\
+About all them things that we could do\
 \
 People are worried about the world\
 They say it's going down in flames\
