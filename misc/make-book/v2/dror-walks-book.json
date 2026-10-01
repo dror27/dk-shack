@@ -1,0 +1,10 @@
+{
+  "title": "דרור הולך",
+  "author": "דרור קסלר",
+  "source_root": "../../..",
+  "sources": ["vol2/stories/he/דרור הולך *.md"],
+  "language": "hebrew",
+  "font": "Libertinus Serif",
+  "line_spread": 0.8,
+  "exclude_titles": []
+}
