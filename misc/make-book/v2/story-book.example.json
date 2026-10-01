@@ -1,0 +1,10 @@
+{
+  "title": "סיפורים",
+  "author": "דרור קסלר",
+  "source_root": "../../..",
+  "sources": ["vol1/stories/he/*.md"],
+  "language": "hebrew",
+  "font": "Libertinus Serif",
+  "line_spread": 0.8,
+  "exclude_titles": []
+}

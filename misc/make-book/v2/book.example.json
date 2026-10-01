@@ -1,0 +1,10 @@
+{
+  "title": "The Lyrics",
+  "author": "Dror Kessler",
+  "source_root": "../../..",
+  "sources": ["vol1/songs/en/*.md"],
+  "language": "english",
+  "font": "Libertinus Serif",
+  "line_spread": 1.10344,
+  "exclude_titles": []
+}
